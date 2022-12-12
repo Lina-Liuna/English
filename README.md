@@ -19,8 +19,6 @@ when:
 where: 
 
 #### 3. idioms: https://www.eslcafe.com/resources/idioms/
-"get it"
-I don't get it sometimes when someone use idioms in the conversation.
 
 #### 4. Formal vs. Informal Speech
 https://youtu.be/zbKLghk2eFg
@@ -94,3 +92,61 @@ You can use a book called a thesaurus, but there's a perfectly good website call
 Thesaurus.com Links to an external site.
 https://www.thesaurus.com/
 
+#### 12. Pronunciation Practice: Word Stress, Part 1, what a syllable is?
+Many students worry about pronouncing individual sounds, but word stress is more important than pronouncing sounds exactly. 
+But before we focus on word stress, we have to remember what a syllable is.
+
+Watch this for a quick review of what a syllable is. 
+https://youtu.be/sqHRA5_AreY
+Stressed syllables receive emphasis and full pronunciation; they are often louder.
+The number of vowel sounds within a word determines the number of syllables.
+
+#### 13. Verb Endings (Suffixes)
+Verbs can be tricky in English.  Sometimes they have suffixes; sometimes they don't.  
+It helps to learn some common verb suffixes because you can identify and learn new verbs by recognizing these suffixes and how they are usually pronounced.
+Here are some common verb endings and some examples with them. 
+(The usual stress pattern is shown, but, of course, with English, there are many exceptions.)
+https://youtu.be/qwrw5OUwRbk
+
+#### 14. Speaking Introducing Yourself 
+We often have to introduce ourselves, and no matter how many times we do it, for many people, it can make us nervous. 
+One of the best practices for feeling more comfortable speaking is practice. 
+If you have a formalized introduction of yourself that you have written and practiced, 
+then when you are asked to introduce yourself, you will feel more confident.
+This will come in handy when you are at a job interview.
+This is a speaking assignment, but if it helps you to write it out first and then read it, that's fine. 
+For this assignment, speak for two minutes introducing yourself.
+Because this is practice for an interview, we'll begin with the word "Hello" rather than "Hi." 
+Be sure to tell your me your name and where you're from.  This could be your home country or where you live now.
+Consider the following questions, but also add anything you think is interesting or useful to know about you:
+What is your work experience?
+What is your education experience?
+What special skills do you have?  (Don't forget that you are bilingual.  That is extremely valuable!)
+What hobbies do you have?
+What goals do you have?
+
+### Unit 5
+#### 15. Pronunciation Practice: Word Stress, Part 2
+https://youtu.be/XASBN5uMdEk
+Stressed syllables receive emphasis and full pronunciation; they are often louder and last longer. 
+(Helpful tip:  For words ending in -ion, the stress is almost always on the syllable right before the ion. 
+For example, information =  in-fer-MEI-shuhn.)
+
+#### 16. Pronunciation Practice: "r," Part 1
+Here's a good one.  Be sure to watch the whole thing!  (No, there won't be a quiz on this, but be sure not to skip over this--"r" is the hardest sound to make in English.)
+
+(This sound can also be found on the American IPA Chart Links to an external site.as the "r" for "rabbit.")
+https://americanipachart.com/
+https://youtu.be/3XRTN5gW4oU
+
+#### 17. Word Forms: Adjectives
+The phrases "word forms" and "suffixes" are closely related.  Word forms tell us the part of speech of a word. 
+Suffixes are word endings that tell us the part of speech of a word.  Not all words in English have suffixes. 
+Many nouns and verbs do not.  However, many adjectives and adverbs do.
+
+Please watch this video on word forms.  It covers the suffixes for several parts of speech. 
+(Ignore any references to a book.  It was made when I still used books for my classes.  Also, ignore the unit number.)  
+In this unit, we will be focusing on adjectives.
+
+https://youtu.be/-6fomRuV_z0
+https://youtu.be/R4vl1H0vdK4
