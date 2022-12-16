@@ -256,3 +256,10 @@ Were you able to find the resources and videos on your personal discussion board
 Do you feel you need more resources to continue improving?  Where would you find those resources?
 C.  Pronunciation Practice: "r," Part 2
 D.  Pronunciation Practice: Intonation
+
+### 28. Review of Unit #7
+used five academic words correctly in sentences.
+learned how to pronounce the "r" sound in "purple."
+turned in Speaking Assignment #3.
+learned the correct intonation for questions and asking for clarification.
+learned and practiced the correct word order for sentences.
