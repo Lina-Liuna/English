@@ -245,7 +245,7 @@ You've probably heard that the word order in English is the following:  Subject 
 There's even more to word order than that.  Have you heard of SVOMPT?  It stands for Subject + Verb + Object + Manner (how) + Place + Time.
 https://youtu.be/4q3ohLRTHa8
 
-### 27. Optional Practice for Unit 7
+#### 27. Optional Practice for Unit 7
 A.   Halloween, Thanksgiving, and Christmas are big celebrations in the US.  
 What traditions do you know about for these days?  Do you have any questions about these holidays?  
 What holidays do you have in your home country?  Do you have a favorite?  What is it and why?  
@@ -257,9 +257,16 @@ Do you feel you need more resources to continue improving?  Where would you find
 C.  Pronunciation Practice: "r," Part 2
 D.  Pronunciation Practice: Intonation
 
-### 28. Review of Unit #7
+#### 28. Review of Unit #7
 used five academic words correctly in sentences.
 learned how to pronounce the "r" sound in "purple."
 turned in Speaking Assignment #3.
 learned the correct intonation for questions and asking for clarification.
 learned and practiced the correct word order for sentences.
+
+
+### Unit 8
+#### Pronunciation Practice: silver "i"
+Here's a sound that most of you probably do not have in your language. 
+It is often confused with green "e" and takes a while to master.  It is a very relaxed sound, so be sure to relax your mouth!
+https://youtu.be/Oqgpxz4fXEI
