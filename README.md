@@ -150,3 +150,11 @@ In this unit, we will be focusing on adjectives.
 
 https://youtu.be/-6fomRuV_z0
 https://youtu.be/R4vl1H0vdK4
+
+#### 18. Pronunciation Practice: "o" as in "Rose"
+"O" is a sound that most of you have in your native language.  
+Did you know that in English, the "o" sound is actually two vowel sounds together? 
+We don't just say "o" in English--we say "o" with a rounded "u" sound at the end. 
+Working on this sound will help you with clarity in many of your words.
+
+https://youtu.be/w7O08xhdH0Q
