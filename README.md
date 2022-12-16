@@ -207,3 +207,16 @@ used a new phrasal verb correctly in a sentence.
 learned how to use the correct word stress with nouns and verbs that are spelled the same.
 learned how to use adverbs correctly.
 completed your third Note-taking Assignment by summarizing a presentation.
+
+### Unit 7
+#### 23. Vocabulary #2: Getting Started with Five Common Academic Word
+"analysis" :I need to go to the lab test center today to finish a blood analysis test ordered by my doctor
+
+"approach":I will offer a systematic approach to achieving my goal this year.
+
+"area": I wish I could enjoy some California sun in this cold area
+
+"assessment": This house assessment is similar to its real selling price.
+
+"assume": I assumed the grocery store near my home opened at 9:00 am, but it’s opened at 10:am 
+
