@@ -239,3 +239,8 @@ Did you go to the party? /What did you bring to the party? /Did you pick up the 
 Can you lend me a dollar? /How are you? /Why did you leave? /Where are the keys? /Who are you calling? /Which one did you buy?
 Can I borrow your book? /Where's your book? /Did you go to the show? /How was the show? /Did you see Amanda? /When did you see Amanda?
 What? /Pardon? /I beg your pardon? /I'm sorry? /I'm sorry. /Come again. /I didn't understand.  Could you repeat that? /I didn't catch that.
+
+#### 26. Word Order: SVOMPT
+You've probably heard that the word order in English is the following:  Subject + Verb + Object.  We sometimes abbreviate that to SVO.  
+There's even more to word order than that.  Have you heard of SVOMPT?  It stands for Subject + Verb + Object + Manner (how) + Place + Time.
+https://youtu.be/4q3ohLRTHa8
