@@ -151,6 +151,7 @@ In this unit, we will be focusing on adjectives.
 https://youtu.be/-6fomRuV_z0
 https://youtu.be/R4vl1H0vdK4
 
+### Unit 6
 #### 18. Pronunciation Practice: "o" as in "Rose"
 "O" is a sound that most of you have in your native language.  
 Did you know that in English, the "o" sound is actually two vowel sounds together? 
@@ -158,3 +159,36 @@ We don't just say "o" in English--we say "o" with a rounded "u" sound at the end
 Working on this sound will help you with clarity in many of your words.
 
 https://youtu.be/w7O08xhdH0Q
+
+### 19. Pronunciation Practice: Word Stress, Part 3
+https://youtu.be/dQ4rUdsh_hQ
+https://www.merriam-webster.com/
+https://www.dictionary.com/
+Here are two good online dictionaries:  Meriam Webster  site.and Dictionary.com . 
+Type in any word (like "apple") and notice how they show the syllable stress in different ways.
+
+### 20. Word Forms: Adverbs
+Word forms tell us the part of speech of a word. Suffixes are word endings that tell us the part of speech of a word.
+Not all words in English have suffixes.
+Many nouns and verbs do not. However, many adjectives and adverbs do.
+
+One of the easiest suffixes to remember is the most common suffix for adverbs: -ly. 
+
+Now that we know the form of adverbs and some exceptions, it helps to know what an adverb is! 
+An adverb can have one of these three functions:
+1). it modifies a verb
+2). it modifies an adjective
+3). it modifies another adverb.
+
+I remember this by looking at the word "adverb" itself. 
+First, there is the "ad" at the beginning of the word--that reminds me that adverbs can modify adjectives.
+Then I look at the end of the word "verb"--that's an easy one; that reminds me that adverbs can modify verbs.
+Then I look at the whole word--"adverb"--and that reminds me that adverbs can modify verbs.
+Here some example sentences:
+
+He is extremely tall.              (Here, "extremely" is an adverb modifying the adjective "tall.")
+He walks slowly.                    (Here, "slowly" is an adverb modifying the verb "walks.")
+He walks very slowly.           (Here, "very" is an adverb modifying the adverb "slowly.")
+
+https://youtu.be/L0USJe44yS4
+
