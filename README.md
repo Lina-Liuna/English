@@ -220,3 +220,8 @@ completed your third Note-taking Assignment by summarizing a presentation.
 
 "assume": I assumed the grocery store near my home opened at 9:00 am, but it’s opened at 10:am 
 
+#### 24. Pronunciation Practice: "r," Part 2
+https://www.colorvowel.com/interactive-chart
+the "r" in "purple shirt."
+https://youtu.be/eRoL9YJa0lQ
+bird work concur reverse over teacher mother her later perhaps turn stir journey
