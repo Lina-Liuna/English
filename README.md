@@ -244,3 +244,15 @@ What? /Pardon? /I beg your pardon? /I'm sorry? /I'm sorry. /Come again. /I didn'
 You've probably heard that the word order in English is the following:  Subject + Verb + Object.  We sometimes abbreviate that to SVO.  
 There's even more to word order than that.  Have you heard of SVOMPT?  It stands for Subject + Verb + Object + Manner (how) + Place + Time.
 https://youtu.be/4q3ohLRTHa8
+
+### 27. Optional Practice for Unit 7
+A.   Halloween, Thanksgiving, and Christmas are big celebrations in the US.  
+What traditions do you know about for these days?  Do you have any questions about these holidays?  
+What holidays do you have in your home country?  Do you have a favorite?  What is it and why?  
+Do you have any US holidays that you enjoy?  If so, what are they and why?
+B.   After looking at your personal discussion board, 
+do you agree with the points that I posted there regarding the areas you need to work on so far? 
+Were you able to find the resources and videos on your personal discussion board?  Have you watched them already?  
+Do you feel you need more resources to continue improving?  Where would you find those resources?
+C.  Pronunciation Practice: "r," Part 2
+D.  Pronunciation Practice: Intonation
