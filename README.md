@@ -225,3 +225,17 @@ https://www.colorvowel.com/interactive-chart
 the "r" in "purple shirt."
 https://youtu.be/eRoL9YJa0lQ
 bird work concur reverse over teacher mother her later perhaps turn stir journey
+
+#### 25. Pronunciation Practice: Intonation
+There are a few terms in pronunciation that are often confused.  These are "stress," "tone," and "intonation." 
+In simple terms, here are their definitions:
+1). Stress refers to syllable stress in a word, meaning how long and how loud the syllable is said.
+2). Tone refers to the pitch of a word or syllable, meaning how high or low the word or syllable is said.
+3). Intonation refers to the pitch of words across a sentence, such as whether certain words or syllables rise or fall.
+Here are two great videos that demonstrate intonation for questions and clarification.
+https://youtu.be/Aoj4HZlLQBY
+https://youtu.be/GFwxtdhNZJw
+Did you go to the party? /What did you bring to the party? /Did you pick up the groceries? /Does the store open at one?
+Can you lend me a dollar? /How are you? /Why did you leave? /Where are the keys? /Who are you calling? /Which one did you buy?
+Can I borrow your book? /Where's your book? /Did you go to the show? /How was the show? /Did you see Amanda? /When did you see Amanda?
+What? /Pardon? /I beg your pardon? /I'm sorry? /I'm sorry. /Come again. /I didn't understand.  Could you repeat that? /I didn't catch that.
