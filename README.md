@@ -192,3 +192,18 @@ He walks very slowly.           (Here, "very" is an adverb modifying the adverb 
 
 https://youtu.be/L0USJe44yS4
 
+### 21. Optional Practice for Unit 6
+A.   Are you good at grammar?  How does grammar make you feel?  Are you good at it in your native language?  What are some of the challenges of learning English grammar?  How important do you think grammar is in communication?
+
+B.   Have you been to any other states in the US?  If so, what was your experience like there?  If you haven't been to any other states, what other states do you know about?  What is your impression of those states?
+
+C.  Pronunciation Practice:  Rose "o"
+
+D.  Pronunciation Practice:  Word Stress, Part 3
+
+### 22. Review of Unit #6
+learned how to pronounce the rose "o" sound in words.
+used a new phrasal verb correctly in a sentence.
+learned how to use the correct word stress with nouns and verbs that are spelled the same.
+learned how to use adverbs correctly.
+completed your third Note-taking Assignment by summarizing a presentation.
