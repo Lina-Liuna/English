@@ -351,5 +351,14 @@ learned how to use and pronounce the simple present tense.
 learned how to use and pronounce contractions.
 identified the simple present tense in spoken language.
 
+### Unit 9
+####  Pronunciation Practice: black "a"
+Here is a sound that may not exist in your native language.  
+(If your native language is Persian, you can probably make this sound easily because it is one of the few languages like English that has this sound.)
+This sound is often called "short a," but it is better described as the "a" in "black cat" on The Color Vowel Chart Links to an external site..
+black "a" (not "red" and not "olive")
+1). Drop your jaw!
+2). Pull back your lips (like you're smiling!)
+https://youtu.be/QJd5c1T1t-w
 
 
