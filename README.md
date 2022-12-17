@@ -392,10 +392,97 @@ B.   Pronunciation Practice: black "a"
 C.   Pronunciation Practice: "th"
 D.  Pronunciation Practice: "Not" Contractions
 
-#### 43. Reivew of Unit 9
+#### 43. Review of Unit 9
 learned how to pronounce the "a" as in "black" sound.
 created a sentence with a new phrasal verb.
 learned how to pronounce the voiced and voiceless "th" sounds.
 practiced the simple present tense in negative sentences and with negative contractions.
 identified the simple present tense in spoken language and repeated it.
+
+### Unit 10
+#### 44. Pronunciation Practice: mustard "u"
+Mustard "u," Links to an external site.often called short "u," is a very common sound in English. 
+Many non-native speakers substitute the olive "a" Links to an external site.sound for it, 
+but it is a much more relaxed sound.  Here is a great video that explains more.
+https://youtu.be/_63fTgbG-yQ
+mustard butter stuff undo sometimes money above untie uphill fun mother up of love
+
+#### 45. Vocabulary #3: Five More Common Academic Words
+Authority:    As a team leader, it is very important for you to speak with confidence and authority.
+Available:    This meeting room will be available until 10:00 am Monday through Friday, and this meeting room is not available on weekends unless approved otherwise.
+Benefit:       Focus on what you want is the secret to success, it will benefit you for a lifetime
+Concept:    Number recognition is a key math concept for a kindergartener
+Consistent: Consistent leadership is one of the most important strength of successful manager
+Excellent sentences, Lina.  I have just a couple of changes.
+#3:  Focus on what you want is the secret to success; it will benefit you for a lifetime.
+#5:  Consistent leadership is one of the most important strengths of successful managers.
+Otherwise, well-done!
+
+#### 46. Simple Present Questions, Part 1
+Here is the form for asking questions that have a "yes" or "no" answer using the verb "be":
+Yes/No Questions
+Am I...?
+Are you...?
+Is he...?
+Is she...?
+Is it...?
+Are we...?
+Are they...?
+https://www.perfect-english-grammar.com/present-simple-exercise-12.html
+
+#### 47. Simple Present Questions, Part 2
+For questions that have a "wh" question word, you just put the question word at the front:
+Wh Questions Words	+
+Where	am I...?
+What	are you...?
+Why	is he...?
+Who	is she...?
+When	are we...?
+How	are they...?
+https://www.perfect-english-grammar.com/present-simple-exercise-13.html
+
+#### 48. Simple Present Questions, Part 3
+For the question form of the present simple tense for verbs other than "be," 
+we use "do" or "does" before the subject to make the 'yes / no' question:
+Yes/No Question
+Do I play?
+Do you play?
+Does he play?
+Does she play?
+Does it play?
+Do we play?
+Do they play?
+https://www.perfect-english-grammar.com/present-simple-exercise-5.html
+
+#### 49. Simple Present Questions, Part 4
+Just like with "be," if you'd like to make a "wh" question, you just put the question word at the front:
+"Wh" Question Word	+
+Where	do I play?
+What	do you play?
+Why	does he play?
+Who	does she play?
+When	do we play?
+How	do they play?
+https://www.perfect-english-grammar.com/present-simple-exercise-6.html
+
+#### 50. Pronunciation Practice: "Do" and "Does"
+https://youtu.be/kANHsMZvhvQ
+Do you know what a helping verb is? I do it all the time. What do you think?
+What do you notice about the pronunciation?  She does accounting for the firm? What does he need?  Why does it do that?
+How do you feel? I DO like them.  (emphasis) You don't like them, do you? I do; I DO like them.   (emphasis)
+It DOES work. This thing doesn't work. It DOES work; you're doing it wrong.   (emphasis)
  
+#### 51. Note Taking #5: Answering Questions
+How many people died in the Civil War?
+When did the Civil War take place?
+Which side wanted slavery to continue?
+What was the economy in the North (Union)?
+What was the economy in the South (Confederacy)?
+What did the South decide to do?
+Who was Abraham Lincoln?
+What is the Emancipation Proclamation?
+What did the 13th Amendment do?
+Who surrendered (lost) the war?
+
+
+
