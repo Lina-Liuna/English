@@ -334,5 +334,22 @@ These examples include some that are accepted in writing and some that are not.
 They are all accepted in speaking.
 https://youtu.be/MzhjD-XrYjg
 
+#### 35. Optional Practice for Unit 8
+A.   Do you feel that the three-branch system of the United States is fair? 
+Why or why not?  What is the system of government in your home country like?  
+Do you think it is fair?  Why or why not?
+B.   Pronunciation Practice: silver "i"
+C.  Pronunciation Practice: "r," Part 3
+D.  Pronunciation Practice: "s" endings
+E.  Pronunciation Practice: Contractions
+
+#### 36. Review of Unit 8
+learned how to pronounce the "i" as in "silver" sound.
+used a new idiom in a sentence.
+learned how to pronounce the "r" sound with multiple vowels.
+learned how to use and pronounce the simple present tense.
+learned how to use and pronounce contractions.
+identified the simple present tense in spoken language.
+
 
 
