@@ -266,11 +266,32 @@ learned and practiced the correct word order for sentences.
 
 
 ### Unit 8
-#### Pronunciation Practice: silver "i"
+#### 29. Pronunciation Practice: silver "i"
 Here's a sound that most of you probably do not have in your language. 
 It is often confused with green "e" and takes a while to master.  It is a very relaxed sound, so be sure to relax your mouth!
 https://youtu.be/Oqgpxz4fXEI
 "elbow grease"
 After a bit of elbow grease, my kitchen shine and sparkle again.
-#### Pronunciation Practice: "r," Part 3
+#### 30. Pronunciation Practice: "r," Part 3
 https://youtu.be/WMkrolnBMPg
+
+#### 31. Simple Present
+Do you know the top five most common errors of non-native speakers?  You probably won't be surprised to know what they are:
+1). articles
+2). prepositions
+3). subject-verb agreement with third person in simple present
+4). verb form
+5). word choice
+We're going to focus now on the one that happens every day--#3--the missing "s" on the simple present verb with the third person.
+The main uses of the simple present:
+to express something that happens regularly:
+      I always eat breakfast.         She eats a lot of candy.
+to express a fact:
+       Omnivores eat meat and plants.
+       Vegetarians don't eat meat.
+to speak about a movie, book, or story:
+       Romeo loves Juliet.
+       Shakespeare writes, "Don't waste your love on somebody, who doesn't value it."
+
+The simple present IS NOT expressed when speaking about "right now."
+Right now, I am taking an ESL class.   (Not:  Right now, I take an ESL class.)
