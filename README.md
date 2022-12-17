@@ -306,3 +306,21 @@ There are more sounds in the English language than there are in the alphabet,
 but here is a rough guide for which sounds are voiced and which are voiceless:
 First, all vowels are voiced:  a, e, i, o, and u.
 
+#### 33: Pronunciation Practice: "s" endings
+When we use the "s" on the simple present tense third-person singular verbs (for "he," "she," "it," and other singular nouns), 
+the "s" sound follows the same rule as it does for other words.
+There are three ways to pronounce the final "s" sound, whether it's on verbs or other parts of speech:
+1). "s"
+2). "z"
+3). "ihz"
+For "s" before voiceless letters, the sound is a pure "s" sound.
+For "s" before voiced letters, the sound is a pure "z" sound.
+For "s" before other sounds that are like "s," the sound is an "ihz" sound.  (Like silver "i" with a "z.")
+
+Here are some verbs for each category:
+eats, lacks, helps, laughs
+plays, loves, begs, smells
+kisses, sneezes, catches, washes
+https://youtu.be/hde9Sg75Nn4
+
+
