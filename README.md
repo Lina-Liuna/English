@@ -375,5 +375,13 @@ Clear here to practice this form:
 https://www.perfect-english-grammar.com/present-simple-exercise-10.html
 
 #### 40. Simple Present Negative Sentences with Other Verbs
-To form negative sentences in the simple present tense with other verbs, we need "not" and the helping verb "do." We can shorten these, also, by using contractions. 
+To form negative sentences in the simple present tense with other verbs, we need "not" and the helping verb "do."
+We can shorten these, also, by using contractions. 
+https://www.perfect-english-grammar.com/present-simple-exercise-3.html
+https://www.perfect-english-grammar.com/present-simple-exercise-4.html
+
+#### 41. Pronunciation Practice: "Not" Contractions
+We use "not" contractions all the time, so work on mastering these sounds to sound more natural.
+https://youtu.be/AiFAXX08ffM
+
 
