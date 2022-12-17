@@ -384,4 +384,18 @@ https://www.perfect-english-grammar.com/present-simple-exercise-4.html
 We use "not" contractions all the time, so work on mastering these sounds to sound more natural.
 https://youtu.be/AiFAXX08ffM
 
+#### 42. Optional Practice for Unit 9
+A.   Did you know previously about the Electoral College?  
+Some people in the US support it while others strongly disagree with it. 
+What is your opinion?  Do you think we should keep it or get rid of it?
+B.   Pronunciation Practice: black "a"
+C.   Pronunciation Practice: "th"
+D.  Pronunciation Practice: "Not" Contractions
 
+#### 43. Reivew of Unit 9
+learned how to pronounce the "a" as in "black" sound.
+created a sentence with a new phrasal verb.
+learned how to pronounce the voiced and voiceless "th" sounds.
+practiced the simple present tense in negative sentences and with negative contractions.
+identified the simple present tense in spoken language and repeated it.
+ 
