@@ -323,4 +323,16 @@ plays, loves, begs, smells
 kisses, sneezes, catches, washes
 https://youtu.be/hde9Sg75Nn4
 
+#### 34. Pronunciation Practice: Contractions
+You may hear that you should not use contractions in English. That is absolutely incorrect!  
+We use contractions all the time in our speaking.  It used to be that you couldn't use them in your academic writing, but even that rule is changing.  
+For now, avoid contractions in your writing, but do use them in speaking.  You will sound much more natural in your speaking if you do.
+What are contractions?  They are the shortening of two words by combining them.  
+When we combine them, we delete at least one letter and replace it with an apostrophe in writing.
+Here is a clear explanation, and below it are some common examples. 
+These examples include some that are accepted in writing and some that are not.  
+They are all accepted in speaking.
+https://youtu.be/MzhjD-XrYjg
+
+
 
