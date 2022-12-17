@@ -295,3 +295,14 @@ to speak about a movie, book, or story:
 
 The simple present IS NOT expressed when speaking about "right now."
 Right now, I am taking an ESL class.   (Not:  Right now, I take an ESL class.)
+
+#### 32: Voiced and Voiceless Sounds
+https://youtu.be/XNrloK1KA0c
+All sounds in English are either voiced or voiceless.  "Voiced" means that your throat vibrates when you make the sound; 
+"voiceless" means that your throat doesn't vibrate when you make the sound. 
+You can feel the vibration by touching your throat or the top of your head when you make the sound.
+
+There are more sounds in the English language than there are in the alphabet, 
+but here is a rough guide for which sounds are voiced and which are voiceless:
+First, all vowels are voiced:  a, e, i, o, and u.
+
