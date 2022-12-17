@@ -367,3 +367,11 @@ https://youtu.be/QJd5c1T1t-w
 Here's Keenyn again in a great video on how to pronounce "th" in English 
 (but I disagree with how she pronounces "with"--I think it should be voiced.)
 https://youtu.be/BBSU6A-CRx0
+
+#### 39. Simple Present Negative Sentences with "Be"
+To form negative sentences in the simple present tense with "to be" verbs, we simply add the word "not."  
+We can shorten this by using contractions.  (Notice how the "I" contraction form is different from the others.)
+Clear here to practice this form:
+https://www.perfect-english-grammar.com/present-simple-exercise-10.html
+
+
