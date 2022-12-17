@@ -270,3 +270,7 @@ learned and practiced the correct word order for sentences.
 Here's a sound that most of you probably do not have in your language. 
 It is often confused with green "e" and takes a while to master.  It is a very relaxed sound, so be sure to relax your mouth!
 https://youtu.be/Oqgpxz4fXEI
+"elbow grease"
+After a bit of elbow grease, my kitchen shine and sparkle again.
+#### Pronunciation Practice: "r," Part 3
+https://youtu.be/WMkrolnBMPg
