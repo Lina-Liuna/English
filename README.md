@@ -554,8 +554,33 @@ taken Practice Quiz #2.
 To make the negative with "be," just add "not" to the "was" or "were" verb.
 https://www.perfect-english-grammar.com/past-simple-exercise-1.html
 
+#### 59. Simple Past Negative Sentences with Other Verbs
+To form negative sentences in the simple past tense with other verbs, 
+we need "not" and the helping verb "did." What's nice is with the simple past, all negative verbs take "did."  
+We can shorten these, also, by using contractions. 
+https://www.perfect-english-grammar.com/past-simple-exercise-4.html
 
+#### 60. Speaking Assignment #5: Answering Questions
+Let's leave war and talk about lifestyle in the US.  We'll jump ahead from the Civil War about sixty years or so to learn about lifestyle in the US in the 1920s. 
+Watch this video to learn all about it.
+Your task is to do the following:
 
+1) Listen to the video.  You can listen as many times as you like.  If you feel like you need to read the transcript, 
+turn on the closed captioning (cc) on the video.
+2) Answer the questions below the video.  Be sure to use complete sentences!  THIS IS A SPEAKING ASSIGNMENT!
+
+https://youtu.be/_FwY40VYhqs
+
+How much of the population lived in rural (countryside) areas by 1920?
+What is "urbanization"?
+What technology had a large effect on the expansion of cities?
+What is urban sprawl?
+What did women start doing in World War I?
+What are at least two items that gave housewives more time?
+What happened to the size of US families in the 1920s?
+What did child labor laws do away with?
+How many high school students were there in 1926?
+What opportunities did women have more of in the 1920s?
 
 
 
