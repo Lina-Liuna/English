@@ -536,6 +536,13 @@ This video covers a tool for how to keep a conversation going:  asking open-ende
 Keep this in mind because we will have some practice on this in the next unit.
 https://youtu.be/MrxxwVNrIJo
 
+#### 56. Optional Practice for Units 10 and 11
+A.   Pronunciation Practice: mustard "u"
+B.   Pronunciation Practice: "Do" and "Does"
+C.  Pronunciation Practice: "w" vs. "v"
+D.  Pronunciation Practice: -ed Endings
+E.  Generate a conversation using the question words in Keeping a Conversation Going
+
 
 
 
