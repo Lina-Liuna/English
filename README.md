@@ -609,6 +609,28 @@ Step 2:  For practice, repeat each word after you hear it in the video.
 Step 3:  Write the meaning for each of the prefixes listed below. (Please number them 1 through 32.)
 https://youtu.be/9O4jGeSAByE
 
+#### 64. Simple Past Questions with "Be"
+To make a question in the simple past, just like the simple present, 
+we change the position of "was" or "were" and the subject.
+
+Here are the simple past "yes/no" questions with "be":
+Was I sleepy?
+Were you late?
+Was he at the movies?
+Was she kind?
+Was it hot?
+Were we hungry?
+Were they at work?
+With the "wh'" questions with "be," the question word just goes at the beginning, and everything else is the same.
+Why was I sleepy?
+Where were you?
+When was he at the movies?
+How was she?
+How was it?
+Why were we hungry?
+When were they at work?
+https://www.perfect-english-grammar.com/past-simple-exercise-2.html
+https://www.perfect-english-grammar.com/past-simple-exercise-3.html
 
 
 
