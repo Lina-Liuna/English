@@ -599,6 +599,17 @@ Round your lips a bit, but less than blue "u."
 The tongue is lower than in "blue."
 https://youtu.be/QtYIp5KYk0M
 
+#### 63. Vocabulary #4: Prefixes
+We've learned about suffixes, which can tell us the part of speech in English.  
+Now we'll learn some common prefixes.
+Prefixes are pieces of words that appear at the beginning.  
+They don't tell us the part of speech.  Rather, they change the meaning of words.
+Step 1:  Listen to and watch the video.  (20 minutes, 18 seconds)
+Step 2:  For practice, repeat each word after you hear it in the video.
+Step 3:  Write the meaning for each of the prefixes listed below. (Please number them 1 through 32.)
+https://youtu.be/9O4jGeSAByE
+
+
 
 
 
