@@ -590,6 +590,15 @@ learned how to produce the negative form of the simple past.
 taken Quiz #2.
 submitted Speaking Assignment #5.
 
+### Unit 13
+#### 62. Pronunciation Practice: wooden "u"
+And now for a strange sound, wooden "u."  This is a common challenge because it is not present in most other languages.
+It's not "u" as in "blue."
+It's relaxed like schwa.
+Round your lips a bit, but less than blue "u."
+The tongue is lower than in "blue."
+https://youtu.be/QtYIp5KYk0M
+
 
 
 
