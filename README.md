@@ -662,6 +662,12 @@ argument more effective.
  I respectfully disagree.
  I have a completely different opinion on that.
 
+#### 66. Review of Unit #13
+learned how to pronounce the wooden "u" sound.
+practiced the meaning and pronunciation of 32 prefixes in English.
+formed questions in the simple past with "be" verbs.
+learned how to disagree with someone politely in English.
+
 
 
 
