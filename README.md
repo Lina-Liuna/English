@@ -632,6 +632,36 @@ When were they at work?
 https://www.perfect-english-grammar.com/past-simple-exercise-2.html
 https://www.perfect-english-grammar.com/past-simple-exercise-3.html
 
+#### 65. Politely Disagreeing
+Have you ever been stuck in a conversation without knowing how to disagree with someone politely?  
+Now you will read a list of ways to disagree with someone
+Choose two of your favorite ways from the list that you think you would like to use in the future. 
+All you need to do is copy two appropriate sentences or phrases from the list.
+
+https://www.speakconfidentenglish.com/disagree-in-english/
+The most polite way to disagree with someone is to use one of these strategies when 
+introducing your disagreement:
+ show that you understand the other person’s opinion
+ apologize before introducing your disagreement
+ pretend to be in the middle or unsure about your position
+Using these strategies helps to soften the disagreement and make your position or 
+argument more effective. 
+ I see what you’re saying but I think...
+ I respect your point but from my perspective (or but in my opinion)...
+ I take your point but that isn’t the way I see it; instead, I think that...
+ True, that is a fair point, but I have to say I disagree...
+ I understand where you are coming from but...
+ There is some truth to what you’re saying but don’t you think that...
+ I’m sorry but I have to disagree with you on...
+ I’m not sure I agree with you on...
+ I don’t think you and I have the same opinion on this issue.
+ I’m afraid I disagree.
+ I’m sorry but I don’t agree.
+ I don’t see it that way.
+ I’m sorry but I disagree with you on this.
+ I respectfully disagree.
+ I have a completely different opinion on that.
+
 
 
 
