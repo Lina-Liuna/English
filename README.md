@@ -506,7 +506,29 @@ https://www.perfect-english-grammar.com/irregular-verbs-exercise-1.html
 https://www.perfect-english-grammar.com/support-files/50_common_irregular_verbs_list.pdf
 https://www.perfect-english-grammar.com/irregular-verbs-exercise-2.html
 
+#### 54. Pronunciation Practice: -ed Endings
+o form the simple past tense, we add -ed to regular verbs. 
+Since this isn't a grammar class, we won't go into all of the exceptions with irregular verbs.
 
+However, that -ed rule can still be confusing because there are three ways to pronounce the -ed ending. 
+We need to understand two ideas:  one is voicing; the other is a syllable.  We've already gone over voicing.  
+You probably have learned about syllables, but watch the first video below for a review, and then watch the second video to understand how the -ed endings are pronounced.
+https://youtu.be/sqHRA5_AreY
+Here's a great video about how to pronounce -ed endings.  Be sure not to skip over this. 
+Our second quiz will be on -ed endings.  This is a very common error with non-native speakers.
+https://youtu.be/SjKqgujaeWE
+RULES for -ed endings:
+
+1) If a verb ends in a "t" or "d" sound and you add -ed, then there is an extra syllable that sounds like "did."
+     shift --> shifted (shif-did)
+     end   --> ended (en-did)
+     avoided --> a/voi/did  (3 syllables)
+2) If a verb ends in a vowel sound or a voiced consonant sound, then it ends in a -d sound with no extra syllable.
+play --> played (Both words are one syllable.)    
+
+love --> loved (Both words are one syllable.)
+3) If a verb ends in a voiceless consonant sound, then it ends in a  -t sound with no extra syllable.
+ wash --> washed (washt)   (one syllable)
 
 
 
