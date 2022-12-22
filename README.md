@@ -489,5 +489,58 @@ Who surrendered (lost) the war?
 Here's a great video on "w" vs. "v."  For "w," remember that the teeth do not touch the lips.  For "v," they do.
 https://youtu.be/7PavwYaxcZA
 
+#### 53.Grammar: Simple Past Tense
+"Be" Verbs with Positive Sentences
+
+The simple past tense is similar to the simple present tense because 
+it has different rules for the verb "be," which becomes "was" or "were."
+Here's how to make the positive with the "be" verb:
+I was cold/you were tired./He was in the garden./She was late./It was sunny./We were on vacation/
+They were hungry./
+
+Other Verbs with Positive Sentences:
+We usually make the positive by adding "-ed'"to the infinitive. For example, "play" becomes "played." However,
+there are some irregular verbs Links to an external site..   For example, "go" becomes "went" and "run" becomes "ran."
+https://www.perfect-english-grammar.com/irregular-verbs.html
+https://www.perfect-english-grammar.com/irregular-verbs-exercise-1.html
+https://www.perfect-english-grammar.com/support-files/50_common_irregular_verbs_list.pdf
+https://www.perfect-english-grammar.com/irregular-verbs-exercise-2.html
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
