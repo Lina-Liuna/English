@@ -484,5 +484,10 @@ What is the Emancipation Proclamation?
 What did the 13th Amendment do?
 Who surrendered (lost) the war?
 
+### Unit 11
+#### 52. Pronunciation Practice: "w" vs. "v"
+Here's a great video on "w" vs. "v."  For "w," remember that the teeth do not touch the lips.  For "v," they do.
+https://youtu.be/7PavwYaxcZA
+
 
 
