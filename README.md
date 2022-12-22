@@ -543,7 +543,12 @@ C.  Pronunciation Practice: "w" vs. "v"
 D.  Pronunciation Practice: -ed Endings
 E.  Generate a conversation using the question words in Keeping a Conversation Going
 
-
+#### 57. Review of Unit #11
+learned the difference between how to make the "w" and "v" sounds in English.
+used another new idiom in a sentence.
+learned how to pronounce the three -ed endings for simple past verbs.
+learned the questions to ask to keep a conversation going.
+taken Practice Quiz #2.
 
 
 
