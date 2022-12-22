@@ -530,6 +530,11 @@ love --> loved (Both words are one syllable.)
 3) If a verb ends in a voiceless consonant sound, then it ends in a  -t sound with no extra syllable.
  wash --> washed (washt)   (one syllable)
 
+#### 55. Keeping a Conversation Going
+Do you find that you are more shy in English than in your native language?  That's a very common experience for many people.  
+This video covers a tool for how to keep a conversation going:  asking open-ended questions rather than yes-no questions. 
+Keep this in mind because we will have some practice on this in the next unit.
+https://youtu.be/MrxxwVNrIJo
 
 
 
