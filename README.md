@@ -582,6 +582,13 @@ What did child labor laws do away with?
 How many high school students were there in 1926?
 What opportunities did women have more of in the 1920s?
 
+#### 61. Review of Unit #12
+practiced -ed endings.
+practiced how to keep a conversation going.
+used another new phrasal verb in a sentence.
+learned how to produce the negative form of the simple past.
+taken Quiz #2.
+submitted Speaking Assignment #5.
 
 
 
