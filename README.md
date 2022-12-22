@@ -550,6 +550,10 @@ learned how to pronounce the three -ed endings for simple past verbs.
 learned the questions to ask to keep a conversation going.
 taken Practice Quiz #2.
 
+#### 58. Simple Past Negative Sentences with "Be"
+To make the negative with "be," just add "not" to the "was" or "were" verb.
+https://www.perfect-english-grammar.com/past-simple-exercise-1.html
+
 
 
 
