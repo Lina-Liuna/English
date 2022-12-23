@@ -1097,6 +1097,18 @@ practiced using more descriptive words without "very" or "really."
 submitted your last Speaking Assignment.
 That's it!  You're finished with the class!  Now enjoy your break!
 
+#### Resources:
+http://a4esl.org/
+https://www.eslcafe.com/
+https://web2.uvcs.uvic.ca/courses/elc/Sample/Advanced/gs/gs_04.htm
+https://www.dvc.edu/academics/departments/english/english-second-language.html
+https://4cd.instructure.com/courses/78911/pages/esl-course-sequence
+https://www.dvc.edu/enrollment/assessment/index.html
+https://www.youtube.com/watch?v=SiW6VAdGfX0
+https://www.youtube.com/watch?v=bFslbh6mkWc
+https://dvc.libguides.com/prf.php?account_id=184123
+https://www.dvc.edu/international/index.html
+
 
  
 
