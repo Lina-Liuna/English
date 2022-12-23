@@ -685,6 +685,51 @@ practiced the meaning and pronunciation of 32 prefixes in English.
 formed questions in the simple past with "be" verbs.
 learned how to disagree with someone politely in English.
 
+### Unit 14
+#### 67. Pronunciation Practice: gray "a"
+Here is a common sound that may exist in your native language. 
+It's often called "long a," but it is better described as the "a" in "gray day" on The Color Vowel Chart Links to an external site.. 
+It is a diphthong--which is a fancy word that means "two vowels together"--so it sounds more like "ei."
+https://youtu.be/XOuD6mFr6sQ
+say pay driveway okay play operate gain separate pain  
+
+#### 68. Group Discussion Unit 14
+Consider the two sentences below.  Which sentence do you agree with, and why? 
+Write two to three sentences explaining your opinion.  
+I'll go first with my opinion.  (You do not have to agree with me!)
+A)  Kindness is more important than honesty.
+B)  Honesty is more important than kindness.
+
+Teacher's answer:
+I believe honesty is more important than kindness.  Although I believe kindness is very important,
+I would rather know the truth about something and make my own decision rather than have someone hide it from me. 
+I believe that even when news is bad, we can deliver it kindly to someone.
+Lina's answer:
+I believe honesty is more important than kindness. 
+I believe honesty is the top foundation of the trust and honest is the most important characteristics in creating strong relationships with others. 
+I can totally trust in another person if our relationship is based on honesty. 
+I believe being honesty means self-respect and respect for truly friends. 
+Although kindness is also important to us, but honesty is the basic foundation, and without the basic foundation, kindness is meaningless. 
+
+#### 69. Simple Past Yes/No Questions with Other Verbs
+o make a yes/no question in the simple past with verbs other than "to be," 
+just put "did" before the subject and the base form of the verb after it.
+Here are the yes/no questions for verbs other than "be":
+Did I walk?
+Did you play?
+Did he cook?
+Did she listen?
+Did it rain?
+Did we eat?
+Did they drink? practice "yes/no" questions in the simple past with verbs other than "be."
+https://www.perfect-english-grammar.com/past-simple-exercise-5.html
+
+#### 70. Review of Unit #14
+created a sentence with a new idiom.
+learned how to pronounce the gray "a" sound.
+learned how to form yes/no question in the simple past with verbs other than "be." 
+prepared for Quiz #3.
+
 
 
 
