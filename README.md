@@ -730,6 +730,108 @@ learned how to pronounce the gray "a" sound.
 learned how to form yes/no question in the simple past with verbs other than "be." 
 prepared for Quiz #3.
 
+#### 71. Linking Consonants to Vowels
+Linking is my favorite skill to teach because I believe it is the greatest skill you can acquire to improve your fluency and pronunciation.  
+When you first hear about linking, it sounds very strange. 
+It takes practice; however, it will not only improve your speaking skills but your listening comprehension skills as well.
+Watch this video to learn about linking, and we'll start with the first kind of linking:  consonants to vowels
+https://youtu.be/5MsVp0L5kKg
+I have a lot of apples.
+I ate a lot of apples.
+I love apples, and I love bananas.
+I love apples.  Although I love them, I don't eat many.
+That is the history of apples.
+All apples have a common ancestor.
+
+#### 72. idiom practice
+Lina Liu
+Nov 26, 2022Nov 26 at 12:42pm
+"egg on (separable)"
+Jimmy didn't have enough money left at casino las vegas last night, but Peter still egged him on one more gambling.
+Sandra Gardiner (She/Her)
+Nov 26, 2022Nov 26 at 1:42pm
+Excellent, Lina!  (That's a popular one with this class!)
+
+#### 73. Simple Past "Wh" Questions with Other Verbs
+To make a "wh" question in the simple past with verbs other than "to be," 
+put the "wh" question word and "did" before the subject and the base form of the verb after it.
+Here are the "wh" questions for verbs other than "be":
+Where did I go?
+What did you play?
+What did he cook?
+Why did she listen?
+When did it rain?
+Where did we eat?
+How did they travel?
+practice "wh" questions in the simple past with verbs other than "be."
+https://www.perfect-english-grammar.com/past-simple-exercise-6.html
+
+#### 74. Group Discussion Unit 15
+Last week you considered two value-based statements.  Now we will get a bit more controversial.
+Consider the two sentences below.  Which sentence do you agree with, and why?  
+Write at least two to three sentences explaining your opinion.  
+I know each sentence has many points to discuss, so discuss those points!
+A)  The government should raise taxes to spend more money on helping people.
+B)  The government should lower taxes on people and companies to stimulate the economy.
+
+Lina Liu
+Nov 26, 2022Nov 26 at 12:18pm
+I agree with sentence B), because currently we experience economic weakness in 2022. 
+So our government need to lower taxes to stimulate the economy by boosting spending. 
+I believe what our government need to do first is to lower the personal income taxes to encourage individuals to work, save, and invest. 
+And lower taxes will ultimately lead to a larger economy.  
+And only after our economy speed up and economy grow in an idea level, we can consider sentence A), 
+currently sentence B) is more suitable for our society.
+Sandra Gardiner (She/Her)
+Nov 26, 2022Nov 26 at 12:20pm
+Excellent critical thinking, Lina!
+
+#### 75. Politely Interrupting
+Have you ever been stuck in a conversation without knowing how to interrupt someone?  
+Read these eleven ways to interrupt someone politely,
+and then copy one here that you want to try the next time you are in this situation.
+11 Ways to Interrupt Someone Politely in English
+(from Speak Confident English:  link to site)
+When you need to deliver a message:
+I hate to interrupt, but I wanted to let you know I have to leave the meeting early.
+I’m so sorry to interrupt, but...
+I don’t mean to be rude, but may I interrupt quickly?
+ 
+When you need to end a conversation
+I’m terribly sorry to interrupt you, but I have to be at work for a meeting shortly 
+and must *get going*. It was wonderful to see you. Have a nice day. (Note: In this 
+context, to get going means to depart or leave.)
+Oh! Sorry to interrupt, but I just noticed the time, and I need to get to work. I’m 
+very sorry. But it was great chatting with you.
+When you need to ask a question or would like to clarify something:
+Sorry to interrupt, but may I ask a quick question?
+I’m so sorry for interrupting, but I’d like to make sure I understood you correctly.
+I don’t mean to be rude, but I’d like to ask a question.
+ 
+When you want to join a conversation or express your opinion:
+So sorry to interrupt, but before we *move on*, I’d like to add my thoughts on this 
+topic. (Note: to move on means to start doing or discussing something new.)
+Excuse me, but may I jump in here?
+May I add something quickly?
+
+https://www.speakconfidentenglish.com/interrupt-someone-politely-in-english/
+
+#### 76. Note Taking #6: Self-evaluation 
+For this assignment, you will go back to your personal discussion board.  At the top, you will find the link for your Speaking Assignment #2.  You will be listening to yourself carefully.  Write down ten words or phrases in your recording where you hear you need to improve. 
+Use the resources I listed on your personal discussion board to help you decide.
+To review, here are the steps to this assignment:
+Step #1:  Go to your personal discussion board and find your Speaking Assignment #2.
+Step #2:  Listen to your Speaking Assignment #2.  Be sure to listen more than once.
+Step #3:  Write down ten words or phrases that you need to improve in your recording.  
+
+#### 77. Review of Unit #15
+taken Quiz #3.
+begun studying linking, starting with linking consonants to vowels.
+created a sentence with a new phrasal verb.
+learned how to form "wh" questions in the simple past with verbs other than "be."
+learned how to interrupt someone politely.
+
+
 
 
 
