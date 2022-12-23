@@ -831,6 +831,280 @@ created a sentence with a new phrasal verb.
 learned how to form "wh" questions in the simple past with verbs other than "be."
 learned how to interrupt someone politely.
 
+### Unit 16
+#### 78. The End of the Semester!
+This is our last unit of the semester, so you're probably wondering what happens next.
+Our last day of class is technically this Friday, December 9.  I will have just two business days to turn in grades, 
+so if there is something you want to turn in or re-do, you have until Tuesday, December 13, at 11:59 PM to do so.  After that, it is out of my hands.
+If you are in the credit class, I will email you with your grade.  If you have an "A," there is nothing else you need to do.  
+If you have less than an "A," I will give you suggestions for how to raise your grade.
+If you are in the non-credit class, you will not be receiving a grade. 
+Remember that you can take this class again next semester or choose to move on to ESL-95.
+You will have access to the Canvas course until January 9, so feel free to download any of your work or the material in the course up until that date.  
+This would be a good time to look at your personal discussion board again and download any resources that will help you for the next classes you take.
+On a side note, my computer had some issues this weekend, so I couldn't post the last quiz.  
+As a result, there are only three quizzes for this class.  I hope that means good news for you!
+As always, let me know if you have any questions.
+I've enjoyed working with you and hope that you have a peaceful winter break!
+
+#### 79. Linking Vowels to Vowels
+If you thought linking consonants to vowels was weird, wait till you hear this:  linking vowels to vowels. 
+But trust me--this will help you sound more like a native speaker, speak faster, read faster, and understand native speakers better.
+
+https://youtu.be/BxZjJLichuY
+This is easier when you see a consonant linked before a vowel.
+
+I ate a lot of apples.
+During that time, many churches, homes, black businesses were bombed. 
+It was like part of life.  It was a part of living and growing up in the South.  
+But when I heard about the shooting in the church in South Carolina, I began to shake, I began to cry.  
+It just came out of me because it stays within you.  And it's almost like here is this link, another link of, ah, death.  
+And the question is when will we break this link?
+
+#### 80. Future Tense: Part 1
+Now that we are at the end of the semester, it's fitting that we look ahead to the future by looking at the future tense.
+Did you know there are three common ways to express the future tense in English?  
+We'll look at the first way first:  using "will."
+This may be the first form taught, but keep in mind that it is not the most common.  
+This form is used for expressing promises.  We can also use "be + going to" for the future tense.  
+"Be + going to" is for a plan, not a promise.  For example, if someone asked me, 
+"What are your doing this weekend?" I would say, "I'm going to visit my cousins" because that is my plan.  
+However, if my mother asks me, "When are you going to do your homework?" I would say,
+"I will do it right now" because I am promising her.  We can also use "will" if we are very sure about the future.
+
+Here's the positive form for a promise (it's just "will"+ the base form):
+Positive Form	Contracted Form
+I will meet him later.	I'll meet him later.
+You will come.	You'll come.
+It will be ready on time.	It'll be ready on time.
+She will be there.	She'll be there.
+He will help us.	He'll help us.
+We will get married soon.	We'll get married soon.
+They will cook dinner.	They'll cook dinner.
+
+The short form, 'll, is very, very common and is almost always used when speaking. 
+It's really much more natural to say "I'll" instead of "I will."  
+Here's some help with the pronunciation of "we'll":
+https://youtu.be/jTfPWknbm7A
+
+Next, here's the negative form (just add "not"; for the contraction, "will not" becomes "won't"):
+Negative Form	Contracted Form
+I will not meet him later.	I won't meet him later.
+You will not come.	You won't come.
+It will not be ready on time.	It won't be ready on time.
+She will not be there.	She won't be there.
+He will not help us.	He won't help us.
+We will not get married soon.	We won't get married soon.
+They will not cook dinner.	They won't cook dinner.
+
+Here's a tip on how to pronounce "won't."
+https://youtu.be/Z8zVS8S7s28
+https://www.perfect-english-grammar.com/simple-future-exercise-1.html
+
+Finally, here's the question form for yes/no questions:
+Will I go?
+Will you come early?
+Will it be cold?
+Will she dance?
+Will he arrive soon?
+Will we cook?
+Will they leave?
+https://www.perfect-english-grammar.com/simple-future-exercise-2.html
+
+And for "wh" questions:
+Where will I go?
+Why will you come early?
+When will it be cold?
+Who will she dance with?
+What time will he arrive?
+What will we cook?
+When will they leave?
+https://www.perfect-english-grammar.com/simple-future-exercise-3.html
+
+#### 81. Future Tense: Part 2
+More common than the "will" form of the future tense is the use of "be + going to + base form."  
+This is used when we are speaking in general about a plan or intention for the future.
+Here's the positive form for a plan or intention (it's just "going to"+ the base form):
+Positive Form	Contracted Form
+I am going to meet him later.	I'm going to meet him later.
+You are going to come.	You're going to come.
+It is going to be ready on time.	It's going to be ready on time.
+She is going to be there.	She's going to be there.
+He is going to help us.	He's going to help us.
+We are going to get married soon.	We're going to get married soon.
+They are going to cook dinner.	They're going to cook dinner.
+
+The words "going to" in speaking are said very quickly and sound like "gonna."  
+Be careful--do not write "gonna"--but do say it.  Here is a video that explains the pronunciation.
+https://youtu.be/nptBj44Aj7A
+
+Next, here's the negative form (just add "not"; for the contraction):
+Negative Form	Contracted Forms
+I am not going to meet him later.	I'm not going to meet him later.
+You are not going to come.	
+You're not going to come.  OR
+You aren't going to come.
+It is not going to be ready on time.	It's not going to be ready on time.   OR
+It isn't going to be ready on time.
+She is not going to be there.	
+She's not going to be there.       OR
+She isn't going to be there.
+He is not going to help us.	
+He's not going to help us.     OR
+He isn't going to help us.
+We are not going to get married soon.	
+We're not going to get married soon.  OR
+We aren't going to get married soon.
+They are not going to cook dinner.	
+They're not going to cook dinner.     OR
+They aren't going to cook dinner.
+
+Finally, here's the question form for yes/no questions:
+Am I going to go?
+Are you going to come early?
+Is it going to be cold?
+Is she going to dance?
+Is he going to arrive soon?
+Are we going to cook?
+Are they going to leave?
+
+And for "wh" questions:
+Where am I going to go?
+Why are you going to come early?
+When is it going to be cold?
+Who is she going to dance with?
+What time is he going to arrive?
+What are we going to cook?
+When are they going to leave?
+
+practice when to use "will" and when to use "be + going to."
+https://www.perfect-english-grammar.com/support-files/will_or_be_going_to.pdf
+
+#### 82. Future Tense: Part 3
+About as common as "be + going to+ base form" for the future tense is the use of the present progressive (or present continuous).  
+This is also used when we are speaking in general about a plan or intention for the future.
+Here's the positive form for a plan or intention using the present progressive/continuous:
+Positive Form	Contracted Form
+I am meeting him later.	I'm meeting him later.
+You are coming tomorrow.	You're coming tomorrow.
+It is raining tomorrow.	It's raining tomorrow.
+She is going soon.	She's going soon.
+He is helping us.	He's helping us.
+We are getting married soon.	We're getting married soon.
+They are cooking dinner tonight.	They're cooking dinner tonight.
+The -ing ending can be tricky to pronounce.  Here is a great explanation on how to pronounce "-ing":
+https://youtu.be/iqW6NZmRzYI
+Next, here's the negative form (just add "not"):
+Negative Form	Contracted Forms
+I am not meeting him later.	I'm not meeting him later.
+You are not coming tomorrow.	
+You're not coming tomorrow.  OR
+You aren't coming tomorrow.
+It is not raining tomorrow.	It's not raining  tomorrow.   OR
+It isn't raining tomorrow.
+She is not going soon.	
+She's not going soon.       OR
+She isn't going soon.
+He is not helping us.	
+He's not helping us.     OR
+He isn't helping us.
+We are not getting married soon.	
+We're not getting married soon.  OR
+We aren't getting married soon.
+They are not cooking dinner tonight.	
+They're not cooking dinner tonight.     OR
+They aren't cooking dinner tonight.
+
+Finally, here's the question form for yes/no questions:
+Am I meeting him later?
+Are you coming early?
+Is it raining tomorrow?
+Is she going soon?
+Is he arriving soon?
+Are we cooking tonight?
+Are they leaving soon?
+
+And for "wh" questions:
+Where am I meeting him?
+Who are you coming with?
+When is it raining tomorrow?
+Why is she going soon?
+What time is he arriving?
+What are we cooking tonight?
+How are they leaving tomorrow?
+
+#### 83. Vocabulary #5: 28 Descriptive Words
+Here is our last vocabulary exercise of the semester!
+Rather than using "very" or "really" with a word you know, 
+try using these words in your speaking and writing to sound more interesting.
+Step 1:  Listen to and watch the video.  (10 minutes, 48 seconds)
+Step 2:  For practice, repeat each word and each sentence as you watch the video.
+Step 3:  Choose five of the 28 words and write one of your own sentences for each word below.  
+You will write five sentences.
+https://youtu.be/GXED_DfgCJs
+I'm delighted to be here.
+She's thrilled with her new place.
+We're heartbroken about it.
+I'm fortunate to be part of such a forward-thinking organization.
+We're grateful for the opportunity.
+It was an exceptional performance.
+We had phenomenal seats.
+This tastes awful.
+He's a horrible cook.
+This place is filthy.
+Her apartment's always spotless.
+You're hilarious.
+That's a gorgeous dress.
+Those are hideous curtains.
+It's an intriguing article.
+That's a compelling argument.
+They've built a massive house out in the country.
+We've had tremendous success with this.
+It's a tiny change that makes a massive impact.
+It's stifling in here.
+I'd rather it be freezing than stifling.
+He's furious about it.
+I'm livid.
+We're slammed this week at work.
+It's crucial that you understand this.
+It's a critical concept.
+I'm completely exhausted.
+He's totally worn out.
+
+Lina Liu
+Lina Liu
+Dec 9, 2022Dec 9 at 2:33pm
+1. Tom told a hilarious joke and everyone burst out laughing.
+2. Jerry was delighted to see his father coming home.
+3. My son gave me a grateful smile and it made my day.
+4. I suggest you read these phenomenal books in your free time.
+5. I found a book named “Filthy Beautiful Love Links to an external site.(Filthy Beautiful Lies)” on Amazon.
+Sandra Gardiner (She/Her)
+Dec 9, 2022Dec 9 at 2:36pm
+Very good, Lina!  That book title sounds interesting!
+
+#### 84. Speaking Assignment #6: Self-correction 
+In your Note-taking #6, you listened to yourself and found ten words or phrases that you need to improve on.  Now you will do just that!
+
+For your Speaking Assignment #6, go to your Note-taking #6 feedback from me on your personal discussion board.  
+At the bottom of my feedback, you will find ten words or phrases. 
+Practice those words and phrases, and when you are ready, record yourself saying them for this assignment.
+
+#### 85. Review of Unit #16
+learned the concept of linking vowels to vowels in spoken communication.
+practiced using "will," "be + going to," and the present progressive to express future events.
+practiced using more descriptive words without "very" or "really."
+submitted your last Speaking Assignment.
+That's it!  You're finished with the class!  Now enjoy your break!
+
+
+ 
+
+
+ 
+
+ 
+
 
 
 
