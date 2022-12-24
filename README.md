@@ -1,9 +1,9 @@
 # ESL Learning 065 note summary
 ### Week 1
 #### 1. Finding things in common
-For our first week, I'd like everyone to get to know each other. Here's a fun activity for you to try.
-Finding things in common:
-We all play many roles in life. We are parents, siblings, uncles, aunts, etc. 
+For our first week, I'd like everyone to get to know each other. Here's a fun activity for you to try.\n
+Finding things in common:\n
+We all play many roles in life. We are parents, siblings, uncles, aunts, etc. \n
 At school we are "students". However, we may not know very much about each other in our every day lives. 
 Tonight, you will get to know each other a little better through our class discussion.
 What to do?
