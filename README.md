@@ -189,6 +189,200 @@ but it is "OH" so you still have to keep your mouth open in an "O" shape
 
 /aw/: Hour  How  Now  Cow  Power
 
+#### 3. Introduction to Pragmatics
+What are Pragmatics?
+
+Pragmatics are types of words, phrases, or sentences that speakers of a language use to be polite.
+
+These types of communication have a very specific form of grammar that does NOT change very much 
+
+because it is used to communicate specific ideas in specific situations.
+
+For example, how to introduce yourself. Most languages have a very specific way to introduce oneself.
+
+In English for example we say,
+Hello/hi.
+How are you?
+It's nice to meet you.
+Why should you learn Pragmatics?
+
+In order for you to communicate very clearly in any language, you need to know and understand the common pragmatics for polite communication. 
+
+When you learn how to use American English pragmatics, 
+
+you can communicate very clearly and easily in most social situations between different people in a very polite way.
+
+#### 4. Monday: Class Activity #1: IPA Practice with first 4 Vowel Sounds
+
+/i/: I have to smile when I say this sound, stressed vowel
+1). /i/= ee: cleat, Deep, Sleep, Tear/Tier, Sheep, feel, least, beast, tea, free, sheep, please, team
+
+/I/: relaxed version, yh, it comes from the back of your throat.
+2). /I/=yh Clip, Pick, Rip, Slim, Sir, Grip, Flip, ship, fill, list, bill, tin, give, ship, think, trip, milk, fill
+
+/ɛ/: relaxed vowel, it's in the back of your throat, it's more relaxed, you mouth doesn't have to use
+too many of it's muscles.
+3). /ɛ/= eh, Get, Self, Set, Step, Tear, Stare/Stair, shed, fret, test, best, tell, send, let, pen, bend
+
+/ey/, stressed vowel sound, because you have to really open your mouth to say it.
+4). /ey/= "A": Day, Tape, Tray, Say, shed, best, test, shape, fate, table, base, take, make, pay, break, late
+
+#### 5. Monday: Class Activity #2: Pragmatics of Questions Practice
+Think about 5 questions you might want to ask someone new that you meet.
+1. How are you today?
+
+2. Would you please tell me you name?
+
+3. How long have you been here?
+
+4. How long have you been learning english?
+
+5. what is you favorite animal?
+
+#### 6. Wednesday Class Activity #1: Appropriate VS Inappropriate Pragmatics Question Practice
+Meeting New People:
+
+The Handshake:
+
+Should be firm, strong and practiced between 1-3 times.
+
+Eye-Contact:
+
+Direct, held for long enough to show you are paying attention.
+
+Eye-Contact VS Staring:
+
+Direct eye-contact should be held between 2 people who are speaking to each other.
+
+It is not appropriate to look at someone directly for more than 5 seconds if you are not talking to them. This is considered staring and is rude.
+
+Body Language:
+
+Stand straight. Do not stand leaning away from the other person. Hands should be either at your side or held in front of you. Do not put hands behind your back. This is usually a sign you are hiding something.
+
+Greeting:
+
+First Time:
+
+Hi, nice to meet you. (Informal)
+Hello, it’s a pleasure to meet you. (Formal)
+Hi, I’m happy to make your acquaintance. (Very Formal)
+Second/more Times:
+
+Hi, it’s good to see you again. (informal)
+Hello, I’m happy to see you again. (formal)
+Hi, it’s a pleasure to see you again. (very formal)
+Introductions:
+My name is ________________.
+Common Conversation Topics:
+The weather
+
+Common likes and dislikes
+
+Family
+
+Hobbies
+
+Work
+
+School
+
+Sports/Exercise
+
+children
+
+Topics to Avoid:
+
+Age
+
+Job Salary
+
+Religious beliefs
+
+Political preferences
+
+Excessive bragging/pride
+
+Marital Status
+Questions for Meeting New People:
+
+What's your name?
+
+Where are you from? What is your native country?
+
+How is your day going? (How are you feeling today?)
+
+How long have you been in the U.S.?
+
+What kind of work do you do? What kind of job do you have?
+
+What subject do you want to study?
+
+What is your favorite subject to study in school?
+
+Do you have any pets?
+
+How is your family?
+
+What's your native language?
+
+How long have you lived here? (city)(state)
+
+How many children do you have?
+
+Do you have any children?
+
+#### 7. Wednesday Class Activity #3: Class Discussion #1: Homelife 
+How much time do you spend at home? Why?
+
+Do you like spending time at home? Why? Why not?
+
+What kind of activities do you enjoy at home?
+
+Who do you like spending time with at home? Why?
+
+Do you have pets or hobbies you like to do at home? If yes, what are they?
+
+#### 8. Homework #1: 4 Vowel IPA Practice 
+#### 9. Homework #2: Pragmatics Question Practice
+Situation #1:
+
+Hello Wendy, It’s so nice to meet you!  My name is Lina:
+
+Where are you from?
+How long have you been here?
+How long have you been learning English?
+ 
+
+Situation #2:
+
+Hey, long time no see, 
+
+Where have you been?
+Is everything good at home?
+How is your family?
+ 
+
+Situation #3:
+
+Hello Teacher, It’s so good to see you.
+
+What are you up to?
+How did you plan lessons?
+
+#### 10. Homework #3: Sharing 5 Interesting Facts about your Homelife
+Izyy's 5 Facts about Home Life:
+
+1. I have 1 cat named Dotman who is very sweet.
+
+2. I love spending time in the kitchen cooking or baking.
+
+3. I often work on hobbies like jigsaw puzzles in the living room.
+
+4. I love to read books in my room.
+
+5. I love spending time in my garden which has many fruit trees.
+
 # ESL_learning 075 note summary
 ### Unit 1 & 2
 #### 1. some common patterns for questions:
