@@ -1,42 +1,78 @@
 # ESL Learning 065 note summary
 ### Week 1
 #### 1. Finding things in common
-For our first week, I'd like everyone to get to know each other. Here's a fun activity for you to try.\n
-Finding things in common:\n
-We all play many roles in life. We are parents, siblings, uncles, aunts, etc. \n
-At school we are "students". However, we may not know very much about each other in our every day lives. 
+For our first week, I'd like everyone to get to know each other. Here's a fun activity for you to try.
+
+Finding things in common:
+
+We all play many roles in life. We are parents, siblings, uncles, aunts, etc. 
+
+At school we are "students". However, we may not know very much about each other in our every day lives.
+
 Tonight, you will get to know each other a little better through our class discussion.
+
 What to do?
+
 Please share the following information with your classmates and pictures if you can:
+
 What is your favorite color?
+
 What hobbies do you have?
+
 What kind of books do you read?
+
 What is your favorite book?
+
 What is your favorite movie or tv show?
+
 Do you have any pets? What kind of pets do you have?
+
 What kind of music do you like?
+
 Here's an example to help you:
+
 My name is Izyy.
+
 My favorite color is blue.
+
 I have many hobbies including: reading, writing books, singing, going for walks, and making different crafts.
+
 I love reading many types of books: mystery, action adventure, novels, fantasy, sci-fi, literature, etc.
+
 My favorite book is Jane Eyre. It's a classic literature book that shows a very strong female main character who explores her role in life and whether she has a right to love. It's a great read.
+
 I love many movies and tv shows. My favorite movie of all time is The Princess Bride. It's a great romantic comedy from the 1980's. I love funny movies. They help me relax and forget about other things in life.
+
 I have one cat. He's very mischievous, but loves to cuddle as well.
+
 I have a very eclectic taste in music from: jazz, classical, pop, rock, alternative, techno, trance, new age, opera, etc.
+
 Example Reply:
+
 Hi Izyy,
+
 my name is Bob. I also love to read many books. In fact, I've been recently reading The Hobbit by J.R.R. 
+
 Tolkien. Have you read it before? I love reading about Bilbo's journey through Middle Earth. 
+
 You are probably familiar with The Lord of the Rings. This book happens before The Lord of the Rings.
+
 I have a cat too! In fact, I have 3 cats. Their names are Jingles, Tommy, and Snowball.
+
 They usually get along with each other, but they sometimes fight, especially over their favorite toys. 
+
 Aren't cats great?
+
 I love 80's movies too, but I've never seen The Princess Bride.
+
 Maybe some day I will watch it. My favorite 80's movie is The Goonies. 
+
 Those kids go on such fun adventures. And to think, that was one of Josh Brolin's first roles as an actor.
+
 Now, he's played Thanos in the Marvel movies. That's crazy!
+
 Hello everyone,
+
 I am Lina. I have 3 goals for ESL 65.
 1. I want to communicate with others fluently.
 2.  I want to improve my intonation.
@@ -44,73 +80,113 @@ I am Lina. I have 3 goals for ESL 65.
 
 #### 2. Introduction to IPA Vowels
 What is IPA?
+
 Most people imagine the IPA to be a kind of beer, but the IPA in question is the International Phonetic Alphabet. 
+
 Different languages use different spelling for different sounds. However, the IPA represents EVERY sound in EVERY language using SPECIFIC symbols that DON'T change. 
+
 This means that every time you see a specific IPA symbol it will ALWAYS represent the SAME sound no matter what language it's being used in.
 
+
 Why should you learn IPA?
+
 Listening and proper pronunciation of words is very important in improving your language skills. 
+
 When you learn what IPA symbols mean, you can more easily identify that sound and that symbol together. 
+
 It helps train your hearing for specific sounds, and reading IPA spelling for words, helps you identify more words that use those sounds which helps you improve your pronunciation.
 
+
 Why should you study IPA vowels first?
+
 Usually vowel sounds in English are the hardest to learn because English only uses 5 letters to represent 14 vowel sounds that exist in English. 
+
 This leads to many problems for English learners. 
+
 It's important to begin with vowel sounds for listening to get the ears used to different sounds occurring in different common words, 
+
 and to practice improving pronunciation of these common words for easier learning.
+
 Here's a list of the 14 English Vowel Sounds:
 IPA
 
+
 Vowel sounds: (11 normal 3 diphthongs) There are 14 vowel sounds total in English
+
 /i/= ee  /I/=yh  /uw/= oo  /ʊ/= ugh  /ey/=A  /ɛ/= eh  /ə/= uh  /ow/= oh  /æ/= aah  /a/= ah  /ɔ/= aw
+
 Diphthongs: (Dipthongs are when you combine 2 vowel sounds to create a new unique sound)
+
 /ay/= ai (eye)
+
 /oy/= oi (toy)
+
 /aw/= ou (how)
 
 Two kind of vowels:
+
 1). 'stressed vowel/tense vowel, it's because you have to stretch the muscles in your face to make it. 
+
 2). relaxed vowel: your body and you mouth doesn't have to do anything special to say them.
+
 Here's a chart with examples of each vowel sound:
 
+
 1). /i/ I have to smile when I say this sound, stressed vowel
+
 /i/:Cheese Please Tease Sheep Team
 
 2). /I/ relaxed version, yh, it comes from the back of your throat. 
+
 /I/: Lip Zip Hip Dip Give
 
 3). /uw/ stressed vowel, you have to use your muscles
+
 /uw/: Tool  Move  Loop  Boot  Zoom
 
 4). /ʊ/ a little stressed but it's slightly more relaxed, ugh 
+
 /ʊ/: Look  Brook  Shook  Hook  Nook
 
 5). /ey/, stressed vowel sound, because you have to really open your mouth to say it.
+
 /ey/: Pay  Stay  Day  May  Lay
 
 6)./ɛ/, relaxed vowel, it's in the back of your throat, it's more relaxed, you mouth doesn't have to use
+
 too many of it's muscles.
+
 /ɛ/: Get Let Met Set Bet
 
 7). /ə/ most common vowel sound in English, especially when used in conversation, called "schwa" 
+
 the sound is relaxed. 
+
 /ə/: Fun  Sun/son Love Money Tough
 
 8)./ow/: a little bit more stressed. it's not as tense as "OO" because you have to tense up for that one.
+
 but it is "OH" so you still have to keep your mouth open in an "O" shape
+
 /ow/: Boat Coat Owe Low No
 
 9)./æ/: tense vowel here, you really have to open up and go  
+
 /æ/: Cat  Black  Hat  Flat  Back
 
 10). relaxed vowel 'ah', you go to your doctor say, "Open your mouth and say AH" and it's going to be a little bit more relaxed.
+
 /a/: Lot  Not  Cot  Got  Talk
 
 11). in California, we really don't use this sound almost at all, except some of them, it's more common in new york.
+
 /ɔ/: Awful  Awesome  Bought  Fought  Sought
 
+
 /ay/: Eye Buy/Bye Hi/high Lie Sky
+
 /oy/: Toy  Soy  Ploy  Avoid  Point
+
 /aw/: Hour  How  Now  Cow  Power
 
 # ESL_learning 075 note summary
