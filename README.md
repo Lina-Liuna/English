@@ -134,60 +134,60 @@ Here's a chart with examples of each vowel sound:
 
 1). /i/ I have to smile when I say this sound, stressed vowel
 
-/i/:Cheese Please Tease Sheep Team
+/i/:Cheese Please Tease Sheep Team, East, Green, Heat, Leap, Keep, Sleep
 
 2). /I/ relaxed version, yh, it comes from the back of your throat. 
 
-/I/: Lip Zip Hip Dip Give
+/I/: Lip Zip Hip Dip Give, List, Fit, Hill, Hip, Milk, Mint
 
 3). /uw/ stressed vowel, you have to use your muscles
 
-/uw/: Tool  Move  Loop  Boot  Zoom
+/uw/: Tool  Move  Loop  Boot  Zoom, Moon, Loop, Wound, Clue, Toon/Tune, Flute, Suit
 
 4). /ʊ/ a little stressed but it's slightly more relaxed, ugh 
 
-/ʊ/: Look  Brook  Shook  Hook  Nook
+/ʊ/: Look  Brook  Shook  Hook  Nook, Good, Nook, Cook, Crook,
 
 5). /ey/, stressed vowel sound, because you have to really open your mouth to say it.
 
-/ey/: Pay  Stay  Day  May  Lay
+/ey/: Pay  Stay  Day  May  Lay, Gray, Grate, Break, Play, Neigh/Nay, Clay, Stay
 
 6)./ɛ/, relaxed vowel, it's in the back of your throat, it's more relaxed, you mouth doesn't have to use
 
 too many of it's muscles.
 
-/ɛ/: Get Let Met Set Bet
+/ɛ/: Get Let Met Set Bet, Tent, Help, Fell, Send, Desk, Tend, Bend
 
 7). /ə/ most common vowel sound in English, especially when used in conversation, called "schwa" 
 
 the sound is relaxed. 
 
-/ə/: Fun  Sun/son Love Money Tough
+/ə/: Fun  Sun/son Love Money Tough, Drum, Truck,Run, Lung, Hug, 
 
 8)./ow/: a little bit more stressed. it's not as tense as "OO" because you have to tense up for that one.
 
 but it is "OH" so you still have to keep your mouth open in an "O" shape
 
-/ow/: Boat Coat Owe Low No
+/ow/: Boat Coat Owe Low No, Slow, Float, Load, Know,No, Flow, Go, Home, Loan, 
 
 9)./æ/: tense vowel here, you really have to open up and go  
 
-/æ/: Cat  Black  Hat  Flat  Back
+/æ/: Cat  Black  Hat  Flat  Back, Last, bat, Jam, Tab, Can, Land
 
 10). relaxed vowel 'ah', you go to your doctor say, "Open your mouth and say AH" and it's going to be a little bit more relaxed.
 
-/a/: Lot  Not  Cot  Got  Talk
+/a/: Lot  Not  Cot  Got  Talk, Lost, Knot/not/ Hot, Mob, Fog, Tong
 
 11). in California, we really don't use this sound almost at all, except some of them, it's more common in new york.
 
-/ɔ/: Awful  Awesome  Bought  Fought  Sought
+/ɔ/: Awful  Awesome  Bought  Fought  Sought, Law, Flaw, Lawn, Prwan
 
 
 /ay/: Eye Buy/Bye Hi/high Lie Sky
 
 /oy/: Toy  Soy  Ploy  Avoid  Point
 
-/aw/: Hour  How  Now  Cow  Power
+/aw/: Hour  How  Now  Cow  Power, Sour
 
 #### 3. Introduction to Pragmatics
 What are Pragmatics?
@@ -215,18 +215,25 @@ you can communicate very clearly and easily in most social situations between di
 #### 4. Monday: Class Activity #1: IPA Practice with first 4 Vowel Sounds
 
 /i/: I have to smile when I say this sound, stressed vowel
-1). /i/= ee: cleat, Deep, Sleep, Tear/Tier, Sheep, feel, least, beast, tea, free, sheep, please, team
+1). /i/ = ee: cleat, Deep, Sleep, Tear/Tier, Sheep, feel, least, beast, tea, free, sheep, please, team
+    
+    /i/ = ee: Heat, Deem, Meet, Meat, Treat
 
 /I/: relaxed version, yh, it comes from the back of your throat.
 2). /I/=yh Clip, Pick, Rip, Slim, Sir, Grip, Flip, ship, fill, list, bill, tin, give, ship, think, trip, milk, fill
+    
+    /I/=yh Hit, Dim, Mitt, Trip
 
 /ɛ/: relaxed vowel, it's in the back of your throat, it's more relaxed, you mouth doesn't have to use
 too many of it's muscles.
-3). /ɛ/= eh, Get, Self, Set, Step, Tear, Stare/Stair, shed, fret, test, best, tell, send, let, pen, bend
+3). /ɛ/ = eh, Get, Self, Set, Step, Tear, Stare/Stair, shed, fret, test, best, tell, send, let, pen, bend
+   
+    /ɛ/ = eh, Head, Met, Send, Rend, Kept
 
 /ey/, stressed vowel sound, because you have to really open your mouth to say it.
-4). /ey/= "A": Day, Tape, Tray, Say, shed, best, test, shape, fate, table, base, take, make, pay, break, late
-
+4). /ey/ = "A": Day, Tape, Tray, Say, shape, fate, table, base, take, make, pay, break, late
+   
+    /ey/ = 'A': Hate, Shame, Pray, Mate, Ray, Cake
 #### 5. Monday: Class Activity #2: Pragmatics of Questions Practice
 Think about 5 questions you might want to ask someone new that you meet.
 1. How are you today?
@@ -382,6 +389,1289 @@ Izyy's 5 Facts about Home Life:
 4. I love to read books in my room.
 
 5. I love spending time in my garden which has many fruit trees.
+
+### Week 2
+#### 11. Learning Objectives: Week 2
+Overall Goals for week 2:
+
+Become successful students who know how to use new idioms correctly;
+Become successful students who know how to politely disagree and correct others;
+Become better at identifying and using IPA for vowels.
+Become better able at participating in student discussions;
+Become successful students who know how to discuss jobs;
+
+Learning Outcomes for week 2
+After our learning work for this week, you will be able to:
+
+Identify and use vowel sounds correctly.
+Discuss topics with other students through canvas discussion boards;
+Learn how to use pragmatics for polite disagreement successfully;
+Discuss jobs in discussion groups;
+Participate in group discussions;
+
+Learning Activities for week 2
+You will discuss jobs in discussion groups;
+You will study and practice using vowel sounds correctly using the IPA;
+You will practice idioms for meeting new people;
+You will practice the pragmatics for politely disagreeing with someone
+
+#### 12. Introduction to Idioms
+
+What are idioms?
+Idioms are words or phrases that don't make sense literally, but they are sayings that have specific meaning.
+These sayings come from some cultural event, idea, or fact.
+idioms MUST follow a specific word order; 
+idioms must have exact wording;
+Idioms have 1 specific meaning;
+idioms vary by culture/country;
+
+Idiom Examples:
+Full of hot air = someone is lying;
+out on a limb = someone is going through a lot of trouble to help someone in need;
+cost and arm and a leg = something is very expensive;
+
+#### 13. Introduction to Pragmatics: Polite Disagreement
+How to show contradictions when someone says something that isn’t true:
+I know many people believe this ________ is true about ___________, but it isn’t.
+
+I’m sorry, but I have to disagree. This is something many people believe, but it isn’t true.
+I understand that many people believe this idea to be true about ________, but I have to disagree. This is simply not true. NOUN
+Although I hear people say this many times, I disagree because it is not true.
+ 
+
+How to form a response to show your opinion:
+The truth is ________________. (opinion)
+Actually, _________ is true.
+You see, _________________ is the truth.
+On the contrary, _________________ is actually true.
+
+#### 14. Introduction and Practice: Meeting New People Idioms
+https://www.thoughtco.com/
+https://www.thoughtco.com/common-english-idioms-3211646
+
+1). Baby Boomer: someone born between 1945-1960 after World War II when many returning soldiers had many children creating a large population of children, or boom.
+Example: My dad was born in 1948 after WWII. He’s a baby boomer.
+
+2). Beating a dead Horse: If someone is trying to convince people to do or feel something without any hope of succeeding, they're beating a dead horse. This is used when someone is trying to raise interest in an issue that no-one supports anymore; beating a dead horse will not make it do any more work.
+Example: You’ve told me that story about your bad experience many times. I still think it’s your fault. Stop beating a dead horse.
+
+3). Bet your bottom dollar: If you can bet your bottom dollar on something, you can be absolutely sure about it.
+Example:
+Bob: Do you really think the Golden State Warriors will win the championship?
+Joe:  You bet your bottom dollar they will!
+
+4). Horse of a different color: If something is a horse of a different color, it's a different matter or separate issue altogether.
+Example:
+Tim: So how is your girlfriend doing?
+John: She’s fine. By the way, did you ever ask your brother about that business deal?
+Tim: Not yet. But that’s a horse of a different color.
+
+5). It’s been a slice: When someone leaves and you have said your goodbyes it is usually the last thing you may say..........It's been a slice. I use it after a visit where we have had a good time.
+Example:
+Sarah: It was great seeing you again. It’s been a slice. I have to go. See you later.
+
+6). My dogs are barking: When someone says this, they mean that their feet are hurting.
+Example: I worked for 10 hours today. I’m so tired! My dogs are barking.
+
+7). Nickel Tour: If someone gives you a nickel tour, they show you around a place. ('Fifty-cent tour' is also used.)
+Example: I wish I had more time to show you San Francisco, but I have work today. I’ll just have to give you the nickel tour.
+
+8). Paint yourself into a corner: If someone paints themselves into a corner, they get themselves into a mess/difficult situation/embarrassing situation.
+Example:
+Kelly: Hi Carla. Aren’t you supposed to be at work today? The boss said you have a meeting today.
+Carla: Oh no! I completely forgot about that. I was at the salon getting my hair done.
+Kelly: I think you’ve painted yourself into a corner.
+
+9).Run around the bush: If you run around the bush, it means that you're taking a long time to get to the point and should focus on talking about the main idea.
+Example: Ok you’ve been telling me this story for 20 minutes. Can you please get to the point and stop running around the bush?
+
+10).Talk a blue streak: If someone talks a blue streak, they speak quickly and at length. ('Talk up a blue streak' is also used.)
+Example:  My friend Sally loves to talk. She can talk a blue streak.
+
+11).Wallflower: A shy person who is not asked to dance is a wallflower. This expression is also used in general to describe a shy person.
+Example: Tina is so shy, she’s such a wallflower.
+
+12).Whistling Dixie: If someone is whistling Dixie, they talk about things in a more positive way than the reality.
+Example:
+Mark: Don’t listen to Tim. He tries to make every situation sound overly positive. He’s always whistling Dixie.
+
+#### 15. Monday Class Activity #1: 4 IPA Vowel Practice #3
+
+#### 16. Wednesday Class Activity #1: Meeting New People Idiom Practice
+
+#### 17. Wednesday Class Activity #2: Polite Disagreement Pragmatics Practice
+Introduction:
+When you move to a new country, it can be difficult to know how to communicate with new people. For this assignment, we will try to use pragmatics for a polite contradiction. Yes, it is ok to disagree with someone about something. We can do this politely.
+
+Instructions:
+Please introduce yourself to your group.
+Talk to each group about 3 common misunderstandings that people have about you, your country, language, or culture, and provide correct information to others in the groups.
+Share out your polite contradictions with the class.
+Now speak with your groups for another 10 minutes asking each other about other misconceptions you've experienced. We'll share out with the class.
+
+Example:
+Many people believe Americans are very lazy. However, this is not true. In fact, most Americans are very hard workers and take almost no vacation time off.
+
+#### 18. Wednesday Class Activity #3: Class Discussion #2: Jobs
+Introduction:
+On this discussion page, you will be practicing your speaking fluency skills with other classmates.
+
+Discussion Topic #1: Jobs: (Think about and try to answer the following questions. Discuss with a partner)
+What job do you currently have?
+Do you like your current job? Why? Why not?
+Would you ever want to do your favorite hobby as a job? Why? Why not?
+
+#### 19.Homework #2: Meeting People Idiom Practice 
+Lina Liu
+Sep 1, 2022Sep 1 at 8:07pm
+Lina: My idioms: 1. bet my bottom dollar, 2.whistling Dixie, 3. horse of a different color
+Example Conversation:
+Mia: Hey Luke, did you finish you English homework yet?
+
+Luke: Not yet, I bet my bottom dollar I will be finishing my homework in half an hour
+
+Mia: You are always whistling Dixie, the English homework is much harder than you thought.
+
+Luke: What about you? Did you finish you Statistics homework yet?
+
+Mia: I’ve always found math to be pretty easy, but Statistics is proving to be a horse of a different color.
+
+#### 20. Homework #3: Dream Job Recording
+Introduction:
+On this discussion page, you will be recording your short answers to the questions below.
+
+What is your dream job? Why?
+Do you think you will ever get your dream job? Why? Why not?
+Answer the 2 questions in writing + as a vocaroo recording.
+Lina Liu
+Sep 2, 2022Sep 2 at 4:36pm
+Question #1: What is your dream job? Why? 
+
+My dream job is to become a  florist, because I can feel more in touch with nature and more peaceful through the flower arrangement and I like the sense of smell from different kinds of flowers. I think the beautiful decorations will bring people the positively influence.
+
+Question #2: Do you think you will ever get your dream job? Why? Why not?
+
+I think I will get my dream job after I retired, maybe. Because currently I have my own job for living, 
+
+and I need spent lots of time with my family, there is not much time left for me to purchase my dream job.
+
+### Week 3
+#### 21. Introduction to Next 4 IPA Vowels
+1). /ow/ oh
+
+a little bit more stressed. it's not as tense as "OO" because you have to tense up for that one.
+but it is "OH" so you still have to keep your mouth open in an "O" shape
+
+/ow/: Boat, Coat, Owe, Low, No, Lope, Bloat, Goat, Oats, Poke, Toe, Snow, Low, Boat, Hope, Wrote, Storm
+
+/ow/: Foam, Glome
+
+2). /ae/ AAH
+
+tense vowel here, you really have to open up and go  
+
+/ae/: Cat, Black, Hat, Flat, Back, Lap, Strap, Tank, Clap, Glad, Snap, Pack, Tack, Hat, Bat, Chat, Fast
+
+3). /uw/  oo
+
+/uw/ stressed vowel, you have to use your muscles
+
+/uw/: Tool, Move, Loop, Boot, Zoom, Glue, Tomb, Boot, Stoop, Fool, Tool, Do, Grew, Flew, Loot/Lute, Fume, 
+
+/uw/: Hoop, Gloom
+
+4). /a/ relaxed vowel 'ah', you go to your doctor say, "Open your mouth and say AH" and it's going to be a little bit more relaxed.
+ 
+/a/: Lot, Not, Cot, Got, Talk, Lop, Prong, Trot, Clop, Car, Not, Mop, Hot, Lot, Pot, Hot, Dot, Star,Far
+
+#### 22. Introduction to Pragmatics of Directions
+videos under ESL-065/ folder
+
+#### 23. Wednesday Class Activity #1: 4 New IPA Vowel Practice
+#### 24. Wednesday Class Activity #2: Direction Pragmatics Practice
+https://en.islcollective.com/
+https://en.islcollective.com/english-esl-worksheets/grammar-topic/prepositions-of-movement/giving-directions/22303
+
+#### 25. Wednesday Class Activity #3: Class Discussion #3: Weather
+Discussion Topic #3: The Weather (Think about and try to answer the following questions. Discuss with a partner)
+
+What is the weather like in your country?
+
+Do you enjoy the weather here in California? Why? Why not?
+
+What is your favorite type of weather? Why?
+
+What is your favorite time of year? Why?
+
+How often do you discuss the weather?
+
+#### 26. Homework #1: 4 New IPA Vowel Practice
+
+### Week 4
+#### 27. Introduction and Practice of Weather Idioms
+1). Clear the air: To get rid of doubts and bad feelings by being honest.
+
+Example:
+Dan: I know you haven’t talked to me in weeks. I know something is wrong. Let’s please clear the air.
+
+John: ok.
+
+2). Fair weather friend: A fair weather friend is someone who is only your friend when everything is good, but no longer are your friend when the situation becomes difficult.
+Example:
+
+Carla: I don’t think you should meet with Sally.
+
+Tina: Why not?
+
+Carla: Because she only likes you when everything is good. She’s never there to support you when things are bad. She’s a fair weather friend.
+
+3). In the dark: You don’t know anything.
+Example: I know the math teacher wants to give us a test, but I have missed 2 weeks of class, so I am in the dark about how to study for it.
+
+4). It’s raining cats and dogs: When there is heavy rain, people say it’s raining cats and dogs.
+Example: Oh look outside. Look at all that rain. I can’t see anything but rain. It’s raining cats and dogs.
+
+5). On cloud nine: A person on cloud nine is said to be very happy, usually over something wonderful happening in life.
+Example: I just won the lottery today. I’m on cloud nine.
+
+6). Set someone or something straight: To advise someone very strongly that what they are doing is wrong, and try to convince them to do something else.
+Example: My sister wants to marry a bad man. I need to stop her. I need to set her straight.
+
+7). Under the weather: this expression is used to describe when someone is feeling sick/ill.
+Example:
+
+Tom: Hey Jim. You don’t look so good.
+
+Jim: I don’t feel so good. I think I may be sick. I’m under the weather.
+
+8). Any port in the storm: This means that in an emergency, any solution will do, even one that would normally be unacceptable.
+Example: When my company was drowning in debt, I had to make very difficult choices. Any port in the storm would do.
+
+9). As the crow flies: This idiom is used to describe the shortest possible distance between two places.
+Example: That store is very close to here as far as the crow flies.
+
+10). (Something) is going/gone south: This idiom describes when a situation becomes worse for someone or something.
+Example: When many stores closed, the economy went south.
+
+11). Blue Skies: An overly enthusiastic outlook or disposition. The sales team had blue skies projections for their deals, although not many of those deals were signed.
+Example: My sister is a big optimist. She always thinks the best of every situation. She has a  blue skies outlook on life.
+
+12). Bolt from the blue: If something happens unexpectedly and suddenly, it is a bolt from the blue. This is used from weather where you get lightning in a clear blue sky.
+Example: I haven’t seen my brother in five months, but yesterday he came to my house unannounced like a bolt from the blue.
+
+13). Burning daylight: if someone says, you’re burning daylight; they mean you are wasting time.
+Example:
+Mom: Stop playing video games! You have a report due tomorrow in school. You’re burning daylight.
+
+14). The calm before the storm: A calm time immediately before a period of violent activity or argument is the calm before the storm.
+Example: When my mom got my report card before dinner. I knew it was the calm before the storm.
+
+Example Idiom Conversation:
+
+Linda: Hi, Mark. Do you know what we need to study for the English test next week?
+
+Mark: Hi, Linda. No, I haven't been in class for 2 weeks. I'm in the dark.
+
+Linda: Oh, that's too bad. I wish I had studied more for the test, but unfortunately, I have been burning daylight. There's a new video game I've been playing. I feel so bad.
+
+Mark: Linda! You know you should study first, then play video games in your free time. I need to set you straight! You don't want to receive bad grades in your classes do you?
+
+Linda: Of course not! I know it's a bad habit. I'll try to stop.
+
+#### 28. Introduction and Practice of Invitation Pragmatics
+INVITE:
+
+Would you like to come with me?
+
+I was wondering if you would like to _______?
+
+Hey, if you aren’t doing anything, would you like to ___________?
+
+I wanted to ask if you’d like to ____________?
+
+ACCEPT:
+
+Ok. 
+
+Sounds great!
+
+Sounds like a plan.
+
+Sure, I’d love to go.
+
+No problem
+
+MAYBE:
+I’d love to but I’m not sure if I can.
+
+Ok, but let me check my schedule first.
+
+Let me think about it, and I’ll get back to you.
+
+NO:
+I wish I could, but I can’t.
+
+I’m sorry but I can’t
+
+I’d love to, but I can’t.
+
+I’m afraid I can’t make it.
+
+#### 29. Wednesday Class Activity #2: Class Discussion #4: Food/Cooking
+Discussion Topic #4: Food/Cooking (Think about and try to answer the following questions. Discuss with a partner)
+
+Do you like to cook? Why? Why not?
+
+Are you a good cook? Why? Why not?
+
+What is your favorite type of food to eat? Why?
+
+What food do you not like? Why?
+
+How often do you cook?
+
+#### 30. Homework #2: Weather Idiom Homework
+Lina Liu
+Sep 16, 2022Sep 16 at 9:13am
+Lina: My idioms:1. It’s raining cats and dogs 2. Any port in the storm 3. fair weather friend
+
+The following conversations happened two days ago:
+
+Lina: Hey Maisie, How's everything? I hear the Tropical Storm Muifa will come to your city, please keep safe.
+
+Maisie: So far so good. yea, currently it's raining cats and dogs outside.
+
+Lina: Have you storage some food for the bad weather?
+
+Maisie: I forgot. I am playing games at home and burning daylight those days. Now I've painted myself into a corner. There's not enough food left.
+
+Lina: I know a friend who is also living in your building, she is not a fair weather friend, I will ask her for help and send you some food you like to eat. What kind of food to you need currently?
+
+Maisie: Really? That's sounds great! Talking about the food, any port in a storm, you know.
+
+### Week 5
+
+#### 31. Introduction to the Next 3 IPA Vowels
+
+1). /ə/: /ə/= uh = (schwa) this sound is the MOST common Vowel sound in American English.
+ /ə/ most common vowel sound in English, especially when used in conversation, called "schwa" 
+ 
+the sound is relaxed. 
+
+/ə/: Fun, Sun/Son/, Love, Money, Tough， Hug, Money, Mud, Tug, Hunt, Nut, Mutt, Gum, Must, Hunt, Just, Rust
+
+2).  /ɔ/= aw SIMILAR to /a/
+
+EAST COAST U.S. = /ɔ/= aw
+
+WEST COAST U.S. = /a/
+/ɔ/: Awful, Awesome, Bought, Fought, Sought, Austistic, Awkward, Claw, Maw
+
+3). /ʊ/: ugh /ʊ/ a little stressed but it's slightly more relaxed, ugh 
+/ʊ/: Look, Brook, Shook, Hook, Nook,Crook
+
+#### 32. Introduction and Practice of Food Idioms
+1). The Bee’s Knees: Something that is the bee’s knees is excellent.
+Example: This bread is the best bread I’ve ever tasted. It’s the bee’s knees.
+
+2). The cat’s pajamas: Something that is the cat's pajamas is excellent.
+Example: This bread is the best bread I’ve ever tasted. It’s the cat’s pajamas.
+
+3). Duck soup: If something is duck soup, it is very easy.
+Example: I’m very good at reading. Reading a long book is duck soup.
+
+4). Eat crow: If you eat crow, you have to admit that you were wrong about something.
+Example: Ok Joe. You said your sports team would win, but they lost. Now, eat crow.
+
+5). Being carded/Getting carded: Being checked for identification.
+Example: My friend Fred looks very young. When he goes to a bar, he’s always getting carded.
+
+6). Breaking bread: Sharing food or eating together.
+Example: It’s good to see everyone is here. Let’s eat. Let’s break bread.
+
+7). Chopped liver: Ignored or unimportant.
+Example: My mom prefers my brother. What about me, am I chopped liver?
+
+8). Comfort food: Food that gives a sense of well-being. The kind of food easily prepared for informal gatherings and good times.
+Example: My mom’s famous pot roast is my favorite comfort food. She makes it for me when I’m sad.
+
+9). Dead meat: In serious trouble.
+Example: Watch out Dan. You broke mom’s favorite vase. Now, you’re dead meat.
+
+10). Eating out: Eating at a restaurant, or somewhere else, instead of at home.
+Example: I’m too tired to cook today. Let’s eat out.
+
+11). Food for thought: Something to think about.
+Example: When my friend told me I need to be more considerate of other people, it gave me some food for thought.
+
+12). Free range: A chicken or other farm animal that’s raised on a farm, not in a cage, and is free to roam around.
+Example: Most people in California prefer to eat free range food because free range animals are treated more humanely.
+
+13). Have one’s cake and eat it, too: When you say: You can’t have your cake and eat it, too, you mean something like: You can’t do both; It’s either this or that; You can’t have it both ways;
+You can’t always have everything.
+Example: My brother wants to be a famous musician and wants to live alone in the mountains. I told him that’s not possible to have both. He can’t have his cake and eat it too.
+
+14). Having a lot on one’s plate: Having a lot to do. Having a lot of things to deal with.
+Example: I’m so busy this week. I have a lot on my plate.
+
+15). Hot potato: Too hot to handle a controversial issue.
+Example: Don’t talk to Steve about his relationship with his girlfriend. It’s a hot potato. They may break up soon.
+
+https://screencast-o-matic.com/watch/crn21eSvp0
+Class Example Conversation: 
+
+Izyy: Hey Maria. Have you tried the food at the new restaurant in Concord?
+
+Maria: No, I haven't. Is the food good there?
+
+Izyy: Yeah, it's the cat's pajamas!
+
+Maria: That sounds great! We should eat out there some time!
+
+Izyy: Yes, we really should! They even make crepes similar to the ones my mom used to make when I was little. It's such comfort food.
+
+Maria: Oo, I hope we can go there soon, but I have a lot on my plate this week with my cousin's wedding and my son's graduation. Maybe we can go next week?
+
+Izyy: That's a great idea, but first I have to finish my report for work or I'll be dead meat!
+
+Maria: You're very smart. That report should be duck soup for you!
+
+Izyy: I hope you're right or else next week I'll be eating crow.
+Lina Liu
+Sep 22, 2022Sep 22 at 11:09am
+Lina: : My idioms: 1. food for thought. 2. eat out. 3. comfort food
+
+Luke: Hey Mia, have you finished reading the book we borrowed from library last month?
+
+Mia: Yes, I finished reading the book yesterday, currently there are many ideas in my mind, this book really give me food for thought.
+
+Luke: Really? That’s sounds great, maybe we can discuss your ideas about the book when we eat out for dinner tonight.
+
+Mia: Sure, what do you want to eat?
+
+Luke: Spaghetti and meatball always my comfort food.
+#### 33. Wednesday Class Activity #1: Class Discussion #5: Hobbies
+Discussion Topic #5: Hobbies (Think about and try to answer the following questions. Discuss with a partner)
+How many hobbies do you have?
+What are your hobbies?
+How often do you do your hobbies? Why?
+What is your favorite hobby? Why?
+Do you want to share your hobbies with other people? Why or why not?
+
+Izyy's Example Hobby:
+One of my hobbies is making fleece scarves. I like this hobby because it is fun, easy, and useful.
+I go to a craft store like Joann's or Michael's and buy at least 1-2 yards of fleece fabric in different designs. Then, I take measurements for the person I want to make a scarf for. Next, I find the pattern they want. I measure and cut the fleece to the right size. I then measure both ends of the fabric from 1-2 inches from the edge. I use a tape measure to mark where to cut a fringe. I cut the fringe. And make sure everything is even. If I need to, I trim any excess fabric. Fleece is great because it doesn't unravel like other fabrics. I don't have to seal the edges. The scarf is done and ready to be given as a gift for winter.
+I only do this hobby in winter when the weather is cold enough for fleece scarves.
+I don't think I'd ever do this hobby as a job since it's seasonal and you can only have so many scarves really.
+
+#### 34. Homework #1: 3 New IPA Vowel Practice
+
+### Week 6
+#### 35. Introduction to Favorite Hobby Presentation
+Due Date:
+You will be presenting on your hobby (either recorded or in-class if you can make it):
+
+Day = Wednesday
+Date = October 12, 2022
+
+#### 36. Introduction and Practice of History Idioms
+https://screencast-o-matic.com/watch/crei19Vc1uU
+
+Idioms for History
+Here are some very common American English Idioms for "History".
+
+History Idioms
+
+1). Achilles’ Heel (adj. phrase): A person's weak spot is their Achilles' heel.
+Example: I’m a horrible cook. That’s my Achilles heel.
+
+2). Actions speak louder than words (expression): This idiom means that what people actually do is more important than what they say. People can promise things but then fail to deliver.
+Example: You can promise to clean your room, or you can actually clean your room. I think actions speak louder than words.
+
+3). Ahead of time (prepositional phrase): If something happens ahead of time, it happens early or before the set time.
+Example: I’m so happy I finished my homework very early. I’m finished ahead of time.
+
+4). All roads lead to Rome (expression): This means that there can be many different ways of doing something.
+Example: There are many ways to read. In the end, what matters most is that you understand what you read. All roads lead to Rome.
+
+5). As you sow, so shall you reap (expression): This means that if you do bad things to people, bad things will happen to you or good things if you do good things.
+Example: (1) I’m so happy you helped that man find a job. As you sow, so shall you reap. I think good things will happen for you.
+
+Example: (2) You should not have stolen money from your mother. As you sow, so shall you reap. You be careful. Bad things may happen to you.
+
+6). Bad Blood (adj. phrase): If people feel hate because of things that happened in the past, there is bad blood between them.
+Example: There is bad blood between me and my friend Carla. She stole my boyfriend a few years ago. Now, I hate her.
+
+7). A clean slate (adj. phrase): If you start something with a clean slate, then nothing bad from your past is taken into account.
+Example: I used to be a bad student. Now in college, I hope to start with a clean slate. I’m going to try to be the best student I can be.
+
+8). A day in the sun (expression): If you have your day in the sun, you get attention and are appreciated.
+Example: When I work, I don’t feel very appreciated. I hope one day, I’ll have my day in the sun too.
+
+9). Dwell on the past (phrasal verb): Thinking too much about the past, so that it becomes a problem is to dwell on the past. Usually we tell people not to dwell on the past. It will not help you solve your present problems.
+Example: I keep telling my sister that she shouldn’t dwell on the past. She is no longer a teenager who made many mistakes. She is now an adult and should think about her adult life.
+
+10). Eleventh hour (adj. phrase): If something happens at the eleventh hour, it happens right at the last minute. This idiom is used especially when you must finish something by a specific time, and you are afraid you may not have enough time to finish on time.
+Example: My boss wanted me to finish my report by 11pm tonight. I was afraid I wouldn’t finish in time, but I finally finished it at the eleventh hour.
+
+Izyy's Example Conversation:
+
+Izyy: I've always wanted to paint and draw, but I have no talent. These are my Achille's heel. 
+
+Monica: Ah, I've always been a very good artist. Art is easy for me. It's duck soup! However, I can't sing at all. I have a terrible voice! That's my Achille's heel!
+
+Izyy: Ah, singing for me is very easy. I have been singing since I was 5 years old. You know you can always train your singing voice.
+
+Monica: I think I'm too old to start training singing now. I would be training at the eleventh hour.
+
+Izyy: Yes, but you can do it. Besides, it shouldn't matter how old you are when you start practicing. In the end, all roads lead to Rome. You can still become a very good singer.
+
+Monica: Yes, you are right. However, you too can become a better artist with a lot of practice. And as they say, "as you sow, so shall you reap." If you practice really hard, you can become better at art.
+
+Izyy: I guess you are right. Perhaps I should forget about the past and start with a clean slate?
+
+Monica: Yes, I think you should. Maybe one day you will have your day in the sun and show off your art.
+
+#### 37. Wednesday Class Activity #2: IPA Practice #3: Mixed Vowels
+#### 38. Wednesday Class Activity #3: Class Discussion #5: School
+Discussion Topic #6: School (Think about and try to answer the following questions. Discuss with a partner)
+How many classes are you taking this semester?
+Do you prefer in-person classes or online classes? Why?
+What do you like to study in school? Why?
+What is your favorite subject in school? Why?
+What is your worst subject in school? Why?
+
+Example Responses: (Izyy)
+I am teaching 2 classes this semester. ESL 87 and ESL 65.
+I prefer teaching in-person, but online is definitely more convenient.
+I like to study many different things in school. 
+My favorite subject in school was always English. I love to read and write.
+My worst subject in school was always math. I did very poorly in my math classes. 
+
+#### 39. Homework #1: 3 IPA Vowel Practice Homework #2
+#### 40. Homework #2: History Idiom Homework
+
+### Week 7
+#### 41. Introduction and Practice of Final 3 IPA Vowels
+1). /ay/= ai (eye), Pie, Sky, Try, My, High, Time, Cry, My, Climb
+   /ay/ = ai, bright, Kite, Height, Pie, Climb, High, Might, Tie/Thai, Cry, Fight, Light, Fly, Sty, Night, 
+   /ay/ = ai, buy, Tie, Pie, Pride, Cry, Lie, Tight, Bright, Crime
+
+2). /oy/= oi (toy), Toy, Boy, Soy, Ploy, Annoy,Noise, Spoil, Ploy
+    /oy/ = oi, Coin, Foil, Oil, Noise, Poise, Droid, Joy, Boy, Annoy,Point, Coy, Troy, Soy
+
+3). /aw/= ou (how), Cow, Proud, Sound, Clown,Town, How, Now, Gown, Found, Tower, Shower, Hour, Flower
+    /aw/ = ou, Hour, Out, Grout, Trout, Found, Sound, Ground, Now,How,Growl, Wow, How, Loud, Mound
+
+#### 42. Introduction and Practice of Sports Idioms
+https://screencast-o-matic.com/watch/crfXhLVn0aC
+1). To take 40 winks (phrasal verb): If you take 40 winks, you have a short sleep.
+Example: I didn’t get enough sleep last night. I think I should take 40 winks.
+
+2). To take a cat nap (phrasal verb): Many people know cats like to sleep often during the day and often take short naps, so when people take short naps, we often call them “Cat naps”.
+Example: I got back from the party really late last night. Now I need to take a cat nap.
+
+3). (to get/have/give) A taste of your own medicine (phrasal verb): If you give someone a taste of their own medicine, you do something bad to someone that they have done to you to teach them a lesson.
+Example: I hate when my friend is always late to everything. This week I gave her a taste of her own medicine. Instead of coming on time to the movies, I showed up 20 minutes late to teach her a lesson. I hope she knows how horrible it is to have to wait for someone that long every time!
+
+4). A tight rein (noun phrase): If things or people are kept on a tight rein, they are given very little freedom or controlled carefully. This idiom comes from horseback riding. Most often it is used in horse racing to keep the horse from going too fast at the beginning, save the horses energy, before letting the horse run more quickly later. The reins are what control the horse’s head.
+Example: After my kids last kitchen disaster trying to cook dinner, I’m keeping a tight rein on their cooking activities. Now, I watch everything they do.
+
+5). Touch and go (phrasal verb): If something is touch-and-go, it is very uncertain; if someone is ill and may well die, then it is touch-and-go. Usually used when someone is very sick in the hospital or very injured.
+Example: After my grandfather suffered a heart attack and landed in the hospital, the whole situation has been touch and go. My family isn’t sure if he will live very long.
+
+6). To turn back the clock (phrasal verb): If you turn back the clock, you try to recreate something from the past. Generally, this idiom is used for people who are trying to get plastic surgery to look younger.
+Example: My aunt recently had a face-lift to try to look 20 years younger and turn back the clock.
+
+7). To have seen better days (phrasal verb): If something's seen better days, it has aged badly and visibly compared to when it was new. The phrase can also be used to describe people. We use this idiom when we refer to people looking sick, old or not healthy.
+Example: I recently met my high school teacher at a café. The poor woman has seen better days. I think she has some health problems.
+
+8). Having a senior moment (phrasal verb): A memory lapse or a momentary confusion in someone who is no longer young is a senior moment. Recently, this idiom is used more generally about whenever you forget something and can’t remember it. It can happen to anyone, but usually is something that people think happens more often in older people, seniors.
+Example: I was talking to my friend Joe today about my new car today when he asked me about how much I paid for it. I couldn’t remember and laughed and told him I was having a senior moment.
+
+9). To be sick as a dog (phrasal verb): If somebody's as sick as a dog, they throw up (=vomit) violently. This may be because of a true sickness like the flu or a cold or it could be caused by drinking too much alcohol.
+Example: Jennifer was sick as a dog last night after she drank too many beers at the party.
+
+10). Skin and bones (noun phrase): If someone is skin and bones, they are very underweight and look bad. Usually this means the person doesn’t look healthy, like they aren’t eating enough food.
+Example: What are they feeding you at school? You’re so skinny; you look like skin and bones.
+
+11). Right as rain (adj. phrase): If things are right as rain, then everything is going well in your life. Also used to describe feeling happy or being happy.
+Example: I had a full night’s sleep, a great breakfast, and my entire day has been great. I’m feeling right as rain.
+
+12). To play hardball (phrasal verb): If someone plays hardball, they are very aggressive in trying to achieve their aim. This idiom is taken from baseball where the pitcher tries to throw the ball hard enough to strike the batter out.
+Example: Let’s play hardball! I want to start my company, and I’m going to do everything I need to to make that happen.
+
+13). A poker face (noun phrase): Someone with a poker face doesn't show any emotion or reaction so that people don't know what they are feeling.
+Example: I always show my emotions easily to other people, but my friend Carla always has a poker face. No one knows what she is thinking or feeling.
+
+14). Out of my league (prepositional phrase): If someone or something is out of your league, you aren't good enough or rich enough, etc, for it or them. This term comes from sports usually baseball.
+Example: Sure I’d love to buy a new car, but something as expensive as a Ferrari is out of my league.
+
+15). To hit the bullseye (phrasal verb): If someone hits the bull's-eye, they are exactly right about something or achieve the best result possible. "Bulls-eye" and "bullseye" are alternative spellings. This idiom comes from archery where the bullseye is the middle of the target.
+Example: When my friend Tom told my other friend Tim about Tim’s bad habits, he really hit the bullseye. I don’t think Tim appreciated the criticism as much though.
+
+16). An armchair quarterback (noun phrase): An armchair quarterback is someone who offers advice, especially about football, but never shows that they could actually do any better.
+Example: For all the times my brother says he can cook better than me, he’s just an armchair quarterback. I have never seen him actually cooking in the kitchen.
+
+Example Conversation:
+Izyy: My friend is an armchair quarterback when it comes to bowling. He is always criticizing me about how I bowl, but he's not very good at bowling himself.
+
+Fassil: Oh, really? Maybe he is just trying to keep a tight rein on you, so you don't win.
+
+Izyy: Maybe. To be honest, I haven't had enough sleep lately. He'll probably beat me. I need to take a cat nap. 
+
+Fassil: Yes, I didn't want to say anything, but you look like you have seen better days.
+
+Izyy: I look that bad? Oh, boy. Maybe I should get spa treatment to turn back the clock.
+
+#### 43. Monday: Class Activity #1: 3 Final IPA Vowel Practice
+#### 44. Wednesday: Class Activity #1: Important Historical Invention Discussion: Part 1 
+Introduction:
+What is an "invention"? It's something new that has been created to help society move forward.
+
+Here's a list of Some Important Historical Inventions:
+
+1. FIRE – it can be argued that fire was discovered rather than invented. Certainly, early humans observed incidents of fire, but it wasn’t until they figured out how to control it and produce it themselves that humans could really make use of everything this new tool had to offer. The earliest use of fire goes back as far as two million years ago, while a widespread way to utilize this technology has been dated to about 125,000 years ago. Fire gave us warmth, protection, and led to a host of other key inventions and skills like cooking. The ability to cook helped us get the nutrients to support our expanding brains Links to an external site., giving us an indisputable advantage over other primates.
+
+2. WHEEL – the wheel was invented by Mesopotamians around 3500 B.C., to be used in the creation of pottery. About 300 years after that, the wheel was put on a chariot and the rest is history. Wheels are ubiquitous in our everyday life, facilitating our transportation and commerce.
+
+3. NAIL – The earliest known use of this very simple but super-useful metal fastener dates back to Ancient Egypt, about 3400 B.C. If you are more partial to screws, they’ve been around since Ancient Greeks (1st or 2nd century B.C.).
+
+4. OPTICAL LENSES – from glasses to microscopes and telescopes, optical lenses have greatly expanded the possibilities of our vision. They have a long history, first developed by ancient Egyptians and Mesopotamians, with key theories of light and vision contributed by Ancient Greeks. Optical lenses were also instrumental components in the creation of media technologies involved in photography, film and television.
+
+5. COMPASS – this navigational device has been a major force in human exploration. The earliest compasses were made of lodestone in China between 300 and 200 B.C.
+
+6. PAPER – invented about 100 BC in China, paper has been indispensible in allowing us to write down and share our ideas.
+
+7. GUNPOWDER – this chemical explosive, invented in China in the 9th century, has been a major factor in military technology (and, by extension, in wars that changed the course of human history).
+
+8. PRINTING PRESS – invented in 1439 by the German Johannes Gutenberg, this device in many ways laid the foundation for our modern age. It allowed ink to be transferred from the movable type to paper in a mechanized way. This revolutionized the spread of knowledge and religion as previously books were generally hand-written (often by monks).
+
+9. ELECTRICITY – utilization of electricity is a process to which a number of bright minds have contributed over thousands of years, going all the way back to Ancient Egypt and Ancient Greece, when Thales of Miletus conducted the earliest research into the phenomenon. The 18th-century American Renaissance man Benjamin Franklin is generally credited with significantly furthering our understanding of electricity, if not its discovery. It’s hard to overestimate how important electricity has become to humanity as it runs the majority of our gadgetry and shapes our way of life. The invention of the light bulb, although a separate contribution, attributed to Thomas Edison in 1879, is certainly a major extension of the ability to harness electricity. It has profoundly changed the way we live, work as well as the look and functioning of our cities.
+
+10. STEAM ENGINE – invented between 1763 and 1775 by Scottish inventor James Watt (who built upon the ideas of previous steam engine attempts like the 1712 Newcomen engine), the steam engine powered trains, ships, factories and the Industrial Revolution as a whole.
+
+11. INTERNAL COMBUSTION ENGINE – the 19th-century invention (created by Belgian engineer Etienne Lenoir in 1859 and improved by Germany’s Nikolaus Otto in 1876), this engine that converts chemical energy into mechanical energy overtook the steam engine and is used in modern cars and planes. Elon Musk’s electric car company Tesla, among others, is currently trying to revolutionize technology in this arena once again.
+
+12. TELEPHONE – although he was not the only one working on this kind of tech, Scottish-born inventor Alexander Graham Bell got the first patent for an electric telephone in 1876. Certainly, this instrument has revolutionized our ability to communicate.
+
+13. VACCINATION – while sometimes controversial, the practice of vaccination is responsible for eradicating diseases and extending the human lifespan. The first vaccine (for smallpox) was developed by Edward Jenner in 1796. A rabies vaccine was developed by the French chemist and biologist Louis Pasteur in 1885, who is credited with making vaccination the major part of medicine that is it today. Pasteur is also responsible for inventing the food safety process of pasteurization, that bears his name.
+
+14. CARS – cars completely changed the way we travel, as well as the design of our cities, and thrust the concept of the assembly line into the mainstream. They were invented in their modern form in the late 19th century by a number of individuals, with special credit going to the German Karl Benz for creating what’s considered the first practical motorcar in 1885.
+
+15. AIRPLANE – invented in 1903 by the American Wright brothers, planes brought the world closer together, allowing us to travel quickly over great distances. This technology has broadened minds through enormous cultural exchanges—but it also escalated the reach of the world wars that would soon break out, and the severity of every war thereafter.
+
+16. PENICILLIN – discovered by the Scottish scientist Alexander Fleming in 1928, this drug transformed medicine by its ability to cure infectious bacterial diseases. It began the era of antibiotics.
+
+17. ROCKETS – while the invention of early rockets is credited to the Ancient Chinese, the modern rocket is a 20th century contribution to humanity, responsible for transforming military capabilities and allowing human space exploration.
+
+18. NUCLEAR FISSION – this process of splitting atoms to release a tremendous amount of energy led to the creation of nuclear reactors and atomic bombs. It was the culmination of work by a number of prominent (mostly Nobel Prize-winning) 20th-century scientists, but the specific discovery of nuclear fission is generally credited to the Germans Otto Hahn and Fritz Stassmann, working with the Austrians Lise Meitner and Otto Frisch.
+
+19. SEMICONDUCTORS – they are at the foundation of electronic devices and the modern Digital Age. Mostly made of silicon, semiconductor devices are behind the nickname of “Silicon Valley”, home to today’s major U.S. computing companies. The first device containing semiconductor material was demonstrated in 1947 by America’s John Bardeen, Walter Brattain and William Shockley of Bell Labs.
+
+20. PERSONAL COMPUTER – invented in the 1970s, personal computers greatly expanded human capabilities. While your smartphone is more powerful, one of the earliest PCs was introduced in 1974 by Micro Instrumentation and Telemetry Systems (MITS) via a mail-order computer kit called the Altair. From there, companies like Apple, Microsoft, and IBM have redefined personal computing.
+
+21. THE INTERNET – while the worldwide network of computers (which you used to find this article) has been in development since the 1960s, when it took the shape of U.S. Defense Department’s ARPANET, the Internet as we know it today is an even more modern invention. 1990s creation of the World Wide Web by England’s Tim Berners-Lee is responsible for transforming our communication, commerce, entertainment, politics, you name it.
+
+Discussion:
+What are some important inventions in history according to you? Why?
+Which invention do you think is MOST important? Why?
+
+#### 45. Wednesday: Class Activity #3: Class Discussion: Important History
+Discussion Topic #7: History (Think about and try to answer the following questions. Discuss with a partner)
+What are some important events that you remember about history? Why?
+What kind of history do you pay attention to? Why?
+What do you think is the most important historical event that changed the world? Why?
+
+Oct 5 at 2:38pm
+Example Responses: (Izyy)
+
+1. Covid-19 = it's the biggest event in recent history. It really changed the world a lot. I think we will never look at the world the same way after Covid. Another important thing I remember happening in history was when we first got the internet in 1995. It created a lot of changes at school, work, and everywhere. I remember going on the internet as a kid for the first time. I thought I had discovered a new world. I wanted to learn everything I could about it. 
+
+2. I usually pay attention to developing technology in history. I find it fascinating to see how technology develops over time and changes the world. This is one reason why I enjoy reading about robots, medicine, and possible changes for the future based on our past.
+
+3. I think the most important thing that changed our world is technology. Over the last 100+ years, our society has really advanced a lot because of technology. That most important technology being the computer. Without computers in history, we wouldn't have gone to the Moon, or have GPS, or have personal computers, the internet, smart phones, or social networks. Building the first computers changed the world forever.
+
+#### 46. Homework #2: Sports Idiom Homework
+Lina Liu
+Oct 7, 2022Oct 7 at 9:01pm
+Lina: My idioms: 1. to take a cat nap 2. play hardball 3. hit the bullseye
+
+Masie: Let’s go to the beach today,
+
+Luke: Could you pls drive the car? I worked till 1:00 am last night. I think I need to take a cat nap in the car.
+
+Masie: It’s not easy to be a co-founder of a start-up company, you have to play hardball to achieve your goals.
+
+Luke: You really hit the bullseye
+
+### Week 8 
+#### 47. Introduction and Practice of Question Pragmatics
+
+https://screencast-o-matic.com/watch/crevhqVVCTa
+How to form Yes/No Questions:
+
+Helping/Auxiliary Verb + Subject + Main Verb + Object?
+Example:
+
+Do       you      like       apples?
+
+H.V    subj.     M.V.      obj.
+
+·         Is/Are – Present Tense
+
+·         Was/were –Past Tense
+
+·         Will – Future Tense
+·         Can   - Present tense         
+
+·         Could- Past tense
+
+·         Do/does – Present tense
+
+·         Did – Past Tense
+Common Forms of Yes/No helping verbs/auxiliary verbs:
+
+How to form Wh- Questions: (why, where, which, how, who, when, what)
+
+Wh-question word + Helping/auxiliary verb + subject + main verb + object?
+
+Example:
+
+Where               did      Donna    go          yesterday?
+
+Wh-question      h.v.      subj.        m.v.         obj.
+
+ 
+
+Wh- Question words and what information is needed:
+
+·         Who = Person
+
+·         What = Thing
+
+·         Where = Place
+
+·         When = Time
+
+·         Why = Reason/explanation
+
+·         Which = Choice
+
+·         How = method/way to do something
+
+ Important Note: # of verbs in a sentence:
+
+Verb tenses can be different in number of verbs used in a sentence. If you have only 1 verb, you should switch that verb with the subject to create a question.
+
+Example: (Sentence)
+
+Sandra    is    young.
+
+Subj.    verb.   Obj.
+
+Example: (question)
+
+Is        Sandra   young?
+
+Verb    subj.         obj.
+
+If your sentence uses a verb tense that has 2 or more verbs, ONLY switch the helping verb before the subject. Keep the main verb in its original position.
+
+Example: (sentence)
+
+Sandra    is   coming     to    the      party.
+
+Subj.       h.v.      m.v.        OBJECT
+
+Example: (question)
+
+Is       Sandra    coming    to    the   party?
+
+h.v.        subj.        m.v.           OBJECT
+
+#### 48. Monday: Class Activity #2: Final 3 IPA Vowel Practice #2
+#### 49. Homework #2: Pragmatics Question Homework 
+Most questions can be formed from sentences. The questions vary from yes/no to “wh” questions. Below, there are many sentences. Make each sentence into a question.
+
+Example: Jenny will go to the party. (Sentence) Will Jenny go to the party? (Question)
+
+Example: Bob is driving home. (Sentence) (When) When is Bob driving home? (Question)
+Lina Liu
+Oct 14, 2022Oct 14 at 6:32pm
+Yes/No Questions
+
+Tommy is a good student. (Question) _Is Tommy a good student?__
+Kevin is going to school. (Question) _Is Kevin going to school?_
+The cat is very young. (Question) _Is the cat very young?_
+Mark is taking 5 classes at DVC. (Question) __Is Mark taking 5 classes at DVC?_
+The dogs are very loud. (Question) _Are the dogs very loud?_
+My grandmother is a very active person. (Question) _Is my grandmother a very active person?_
+“WH” Questions
+
+Julia is coming to the party. (When) (Question) _When is Julia coming to the party?_
+Linda is studying art history. (Where) (Question)  Where is Linda studying art history?_
+The dog is chasing the cat. (Why) (Question)  Why is the dog chasing the cat?
+Fred is making cookies. (How) (Question) _How is Fred making cookies?
+The kitten ate the fish. (Which) (Question) _Which kitten ate the fish? 
+Jennifer is very sad. *(Who) (Question) _Who is very sad?  
+The park is very beautiful. *(What) (Question) __What is very beautiful?  
+
+### Week 9
+#### 50. Introduction and Practice of 5 IPA Consonants
+Consonant Sounds:
+Consonants are different from vowels. Vowels are sounds that you make when your mouth is OPEN. 
+Consonants are sounds that you make when you somehow BLOCK air coming from your mouth.
+
+Why 25 Consonant Sounds?
+English contains 25 consonant SOUNDS. Remember, letters do NOT always = sounds. 
+There are only 26 LETTERS in the English alphabet, but there are 39 SOUNDS in the English language. 
+Please remember that every consonant sound on the IPA does NOT exist in English. 
+Some of the sounds exist in OTHER languages. We will ONLY focus on 25 consonant sounds in English.
+
+Survey of Consonant Sounds (25 in English)
+# Letter  Example Word         Sound  Symbol
+1. B     Buble                buh     /b/
+2. C/K/Q Could,clock, quick    kuh     /k/
+3. CH     Chuck                Chuh    /ch/
+4. D      Dad                   duh    /d/
+5. F      Fun                   fuh    /f/
+6. G      Game                 guh     /g/
+7. H      Ham                  ha      /h/
+8. J      Judge                juh     /dʒ/
+9. L      Love                  luh    /l/
+10. M     Mom                  ma      /m/
+11. N     Nap                  na      /n/
+12. NG    Sing                 eeng    /ŋ/
+13. P     Party                puh     /p/
+14. R     Rule                 ruh     /r/
+15. S     Say                  suh     /s/
+16. SH    Shout                shuh    /ʃ/
+17. T     Try                  tuh     /t/
+18. TH    Thin                 thhh    /θ/
+19. TH    Then                 thuh    /ð/
+20. V     Very                 vuh     /v/
+21. W     Wet                  wuh     /w/
+22. X     Text                 ksuh    /ks/
+23. Y     Yet                  yuh     /y/
+24. Z     Zoo                  zuh     /z/
+25. ZH    Azure                zhuh    /ʒ/
+
+Example words that use each consonant sound:
+1. /b/ = brother, buy, beach
+2. /k/ = could, candy, crazy
+3. /tʃ/ = change, chunk, cherry
+4. /d/ = danger, dad, dig,
+5. /f/ = fun, friend, full
+6. /g/ = good, game, guess
+7. /h/ = Hamburger, honey, have
+8. /dʒ/ = judge, jury, jump
+9. /l/ = love, life, look
+10. /m/ = mom, music, milk
+11. /n/ = no, news, next
+12. /ŋ/ = sing, bring, thing
+13. /p/ = pen, park, pink
+14. /r/ = rain, ring, red
+15. /s/ = sing, send, sun
+16. /ʃ/ = shrug, sure, sugar
+17. /t/ = tug, tall, team
+18. /θ/ = (theta = short TH, VOICELESS) thin, think, tooth
+19. /ð/ = (Thorn = LONG TH, VOICED) three, these, further
+20. /v/ = volume, violin, vest
+21. /w/ = wet, wing, west
+22. /ks/ = box, socks, fox
+23. /y/ = yams, yes. yesterday
+24. /z/ = zoo, zoom , zebra
+25. /ʒ/ = pleasure, treasure, garage
+
+What does VOICED and VOICELESS mean?
+Voiced = vibration in throat when you make the sound.
+
+Voiceless = No vibration in throat when you make the sound.
+
+Examples of Voiced sounds:
+/b/, /d/, /g/ = buddy, dig, gold (your voice vibrates in your throat when you say these sounds.
+
+Examples of voiceless sounds:
+
+/p/, /t/, /k/ = pet, take, kid (your voice does NOT vibrate in your throat when you say these sounds.
+
+
+ 1. /b/ = brother, buy, beach, bring, boss, brass, binder, basket
+ 2. /k/ = could, candy, crazy, climb, candy, crumble, cloud, cold, casino
+ 3. /tʃ/ = change, chunk, cherry, chart, child, cheese, chess
+ 4. /d/ = danger, dad, dig,drink, draft, dose, dunk
+ 5. /f/ = fun, friend, full, fall, feel, flail, float, festival
+
+#### 51. Introduction and Practice of Lifestyle Idioms
+Idioms for Lifestyle
+Here are some very common American English Idioms for "Lifestyle".
+
+Lifestyle Idioms
+
+1). Hand to mouth (existence)(noun phrase): Someone who's living from hand to mouth, is very poor and needs the little money they have coming in to cover their expenses.
+Example: When my husband lost his job, we began to live hand to mouth. Every paycheck I bring home only covers our expenses from month to month.
+
+2). The Haves (noun phrase): A have is a person who is wealth/rich.
+Example: I used to have a childhood friend who was part of the haves. Her parents were both doctors and always had fancy parties.
+
+3). The have nots (noun phrase): A have not is a person without wealth or power.
+Example: I remember as a child, many people referred to my family as the have nots. We were very poor and could barely afford to pay for all our expenses.
+
+4). Here today, gone tomorrow (expression): Money, happiness and other desirable things are often here today, gone tomorrow, which means that they don't last for very long. This phrase is often used to remind people that we should appreciate what we have in life because you never know when those things will be gone.
+Example: Sarah: I hate my big sister. She’s always bossing me around! Jane: Hey, you should be happy. I don’t even have a sister. And just wait. Your sister will be going to college soon. You’ll miss her then. Here today, gone tomorrow you know.
+
+5). Different strokes for different folks (adj. phrase): This idiom means that different people do things in different ways that suit them.
+Example: I like to jog in the park in the evening. My brother likes to jog in the park in the morning. I guess there are different strokes for different folks.
+
+6). Live and let live (phrasal verb): If you live and let live, you accept other people as they are, although they may have a different way of life.
+Example: I don’t understand how my neighbor can go and hunt live animals. I love animals and could never go hunt them. I guess I should just live and let live.
+
+7). Make ends meet (phrasal verb): To make enough money to pay for your expenses.
+Example: I used to have a difficult time making ends meet, but now with a better job, I can easily pay for all my bills and still have extra money for things I want to buy.
+
+8). To march to the beat of your own drum (phrasal verb): If people march to the beat of their own drum, they do things the way they want without taking other people into consideration.
+Example: I know some people tell me I should think about how my actions have consequences for my family, but I don’t really care. I march to the beat of my own drum.
+
+9). To meet someone halfway (phrasal verb): If you meet someone halfway, you accept some of their ideas and make concessions.
+Example: I agree with you about getting rid of school loans, but I don’t agree with you about how to get rid of school loans. How about if I meet you halfway? I’ll accept the idea at least that school loans should be eliminated.
+
+https://screencast-o-matic.com/watch/crerhmVVhxP
+
+Example Conversation:
+
+Izyy: I'm worried about my friend David. He always marches to the beat of his own drum, but this has created big problems for him. Last month, he gambled and lost $5,000 at the casino. He had to live a hand to mouth existence this month. He barely had enough money to buy food to eat.
+
+Julia: Aren't his parents rich? I thought they were the haves.
+
+Izyy: They are, but they think that David needs to be a responsible adult and make his own money. For now, that means he's a have not.
+
+Julia: Isn't he studying to become a computer network engineer? That pays a lot of money.
+
+Izyy: Yes, he is, but he is not a computer engineer yet. He still has to take 3 more years of school before he finishes and with the way he gambles away his money, It can be here today, and gone tomorrow.
+
+Julia: Yes, but I don't think you can help him by giving him money all the time. He will never learn his lesson.
+
+Izyy: I agree. That is why I asked him to meet me halfway. If he finishes all his classes this semester with A's, I promised I would give him some money to help him.
+
+Julia: That sounds fair. I don't have any money, so I can't help him. He just needs to let me live and let live and stop asking me for money.
+
+Izyy: I hope he is successful. Different strokes for different folks you know. I think he will be successful in the end.
+
+Example Conversations: Izyy: (ALL 9 Idioms)
+
+Izyy: Last month was very difficult. My brother lost his job, so he can barely make ends meet.
+
+Lisa: Oh, I'm sorry to hear that. Last year, I had a very difficult work situation too, so I understand your brother's situation. I was part of the have nots last year. This year, I am making much better money, so I am part of the haves. 
+
+Izyy: Yes, you are very lucky. I know my brother doesn't have much experience with hotel services, but I think he can learn very quickly and get a new job as hotel concierge. However, he says he doesn't want that job. Different strokes for different folks, I guess.
+
+Lisa: You know, maybe you can get him some training first to help him get used to the idea of the hotel job. You can meet him halfway.
+
+Izyy: Maybe you are right. I might try that. In the end however, the final decision is his, but if he doesn't take that hotel job soon, it may be here today, gone tomorrow.
+
+Lisa: I guess you should just let him live and let live. It is his life after all.
+
+Izyy: Yes, my brother is very stubborn. He marches to the beat of his own drum.
+
+Lisa: As long as he doesn't have to live a hand to mouth existence, then it is ok.
+
+
+#### 52. Monday: Class Activity #1: General IPA Vowel Practice: ALL 14 Vowels
+#### 53. Monday: Class Activity #2: Class Discussion #8: Family
+Discussion Topic #8: Family (Think about and try to answer the following questions. Discuss with a partner)
+How often do you spend time with your family?
+Do you have family that is far away? How often do you speak with them?
+What are some of your favorite things to do with your family? Why?
+
+Example Responses: (Izyy)
+
+I'm usually pretty busy, so I don't have a lot of time to spend with my family. Besides, most of us are adults with busy jobs and lives that have different schedules. Sometimes, we meet for dinner together, but this is very uncommon. Usually, we have short conversations over the phone or watching movies together.
+I have family around the world. I don't usually contact them very often. Once in a while we email each other or speak over skype. We try to keep up with big news at least, but we don't have time to keep up more often with smaller details like everyday life.
+Usually, when I'm spending time with my family, we spend time talking over a meal like dinner. We also tend to watch movies together or go for walks outside. Most often we all meet for important events like birthdays, anniversaries, and other holidays like Thanksgiving or Easter. During the holidays, it's a great time to chat about life and anything new that is happening.
+If there are kids present, we usually spend some time with the kids, playing with them. 
+
+#### 54.Introduction and Practice of Compare/Contrast Pragmatics
+Sharing Opinions:
+
+I think...
+
+I believe...
+
+I often think...
+
+I have often told people...
+
+As I have told everyone in the past, I think...
+
+I really think this is true.
+
+Agree:
+I completely agree with you.
+
+Yes, I agree.
+
+That is true.
+
+Yes, that makes sense.
+
+Yes, that is correct.
+
+Yes, that’s right.
+
+Disagree:
+Well, I see what you mean, but I disagree.
+
+I’m sorry, but I don’t agree with you.
+
+I don’t think that’s true.
+
+I can’t agree with you. Sorry, that isn’t true.
+
+That’s simply not true.
+
+No, that’s not true.
+
+No sorry, that’s not true.
+
+https://screencast-o-matic.com/watch/crerfRVVhvo
+
+Share at least 10 opinions you have about different topics with your classmates.
+
+Classmates can agree, or politely disagree about each topic.
+
+Possible topics:
+Pets
+Home
+Work
+School
+Vacation
+Culture
+History
+Family
+Example:
+(Izyy): I think everyone should have a pet at least once in their lives. They can really enrich your life. Animals can also teach you many important life lessons.
+
+(PETS) Izyy: I think everyone should have a pet at least 1 time in their life. They are great at teaching us responsibility, love, and are good for our health.
+
+Julia: I understand why you say that, but I don't agree with you. I am very allergic to pets, so I can't have a pet. Also, I am too busy to even have a goldfish as a pet. I just don't have the time to take care of them! It wouldn't be fair to the pet, if I neglect them due to my busy schedule. The pets need someone who has enough time to care for them properly.
+
+Izyy: I understand. I agree with you. I suppose I also think that people who are not good with pets, shouldn't have them either. The pet may have a bad life with someone who abuses, neglects, or doesn't know how to care for them. I think you have changed my mind about WHO should have pets. I also agree that having a pet when you are allergic, is probably not a good idea.
+
+(VACATION) Izyy: I think my favorite place to go on vacation was Ireland. I have always wanted to go there since I was a little girl. I finally went for a visit with my boyfriend a few years ago. We really had a great time. It's so beautiful there. We loved the natural beauty, the people, and all the interesting things to see.
+
+Julia: Ah, I see. I have never been to Ireland, but one reason I haven't gone is because I hear it rains a lot there. I don't enjoy rainy places very much like you do, so I have to disagree with you. Instead, I like to go to the beach a lot. My favorite beach in the world was in the Philippines. It's tropical weather, beautiful sandy beaches, and very kind people that make it the best place for a vacation.
+
+Izyy: Isn't it rather humid there?
+
+Julia: Yes, it can be very humid. It's a tropical environment, but I love it.
+
+Izyy: Oh, I don't do very well with high humidity. I don't like that too much. It's bad for my asthma. I must disagree with you, although I'm sure it must be beautiful.
+
+### Week 10
+#### 55. Introduction and Practice of Next 5 Consonant Sounds
+Tongue Twisters:
+The goose got to the gate and gained a gaming goat.
+
+Please hold the ham in your hand in heated haste.
+
+The jury told the judge to just jail in July.
+
+The lost look loped along long after it was late.
+
+The moon made a mist look metal mainly morally.
+
+1. Noses near knots not nests never run underneath nibblers.
+
+2. The thing that spring brings is rings of singing starlings over fairings.
+
+3. Pepper put pasta on her pen for the pest papa poked pretty practically.
+
+4. Rain rolled and reached a rat ring that raised a ready raisin roll.
+
+5. Spring safely sold singing soap on the sand in sight of the slowly slithering snake.
+
+
+
+#### 56. Introduction and Practice of Environment Idioms
+Idioms for Environment
+Here are some very common American English Idioms for "Environment".
+
+Environment Idioms
+
+1. A disaster waiting to happen (noun phrase): If something is an accident/disaster waiting to happen, there's definitely going to be an accident or it's bound to go wrong. This idiom is used to encourage people to do something about a bad situation, so it doesn’t lead to a disaster.
+Example: I knew that the hanging power lines were a disaster waiting to happen, so I called PG&E to fix them.
+
+2. An ounce of prevention is worth a pound of cure (expression): This expression means that it is better to try to avoid problems in the first place, rather than trying to fix them once they arise.
+Example: When my mother started having a hard time breathing, I told her to go to the doctor. She told me it was nothing, but I told her, an ounce of prevention is worth a pound of cure.
+
+3. To be barking up the wrong tree (phrasal verb): If you are barking up the wrong tree, it means that you have completely misunderstood something or are totally wrong. This was a term taking from hunting when the dogs found the wrong animal.
+Example: Rosa: You said you didn’t like “her” anymore. I didn’t know you hated me that much. Tina: When did I say that? Oh, you must have heard me talking to Daniel. I think you’re barking up the wrong tree, Rosa. I was talking about my boss, Kelly, not you.
+
+4. Busy as a bee/busy as a beaver (adjective phrase): If you're as busy as a beaver or bee, you're very busy indeed.
+Example: I work very long days, often more than one job. I’m always busy as a beaver/bee.
+
+5. Can’t see the forest for its trees (phrasal verb:) If someone can't see the forest for its trees, they are too focused on specific details to see the whole bigger situation.
+Example: When my brother lost his job, all he could think about was what his next job was going to be, but he forgot to look for more work in the meantime. He couldn’t see the forest for its trees.
+
+6. A cloud of suspicion (noun phrase): If a cloud of suspicion hangs over an individual, it means that they are not believed or are distrusted.
+Example: After the very strange things that happened at the last local elections, many people thought that the politician had a cloud of suspicion over him.
+
+7. A cloud on the horizon (noun phrase): If you can see a problem ahead, you can call it a cloud on the horizon.
+Example: When my boss called me about the latest business report, I could tell there was a cloud on the horizon.
+
+8. To come with the territory (phrasal verb): If something comes with the territory, it is part of a job or responsibility and just has to be accepted, even if unpleasant.
+Example: You knew that when you joined a dairy farm, you would have to clean up a lot of cow manure. It comes with the territory.
+
+9. The cream of the crop (noun phrase): The cream of the crop is the best quality of something there is.
+Example: I like very high quality ingredients when I cook dinner. I only buy the cream of the crop. Nothing else will do.
+
+10. A deer in the headlights (noun phrase): When one is caught off-guard and needs to make a decision, but cannot react quickly. This idiom comes from the reaction deer often have when it’s dark and a car shines it’s headlights on it. The deer will stop in the middle of the road and not move when it should be running away.
+Example: When my boss asked me to make a very quick decision about the company finances, I felt like a deer in the headlights. I wasn’t sure how to decide on the situation.
+
+11. https://screencast-o-matic.com/watch/crfF1bVn79m
+Example Conversation:
+
+Izyy: Hi Mario!
+
+Mario: Hi Izyy! I'm sorry, I can't talk. I have to run. I am busy as a bee this week!
+
+Izyy: Oh no! Mario, I think you should slow down. You can't keep going this fast. It's a disaster waiting to happen!
+
+Mario: I'm afraid I can't slow down. When I took the job at Google, I knew I would be very very busy. It comes with the territory.
+
+Izyy: Yes, but I think you can't see the forest for the trees right now. Remember why you joined Google in the first place?
+
+Mario: Yes, I wanted to become a great computer programmer to help my community.
+
+Izyy: And how much time have you had to help your community?
+
+Mario: Well, I admit I don't have much time to help. 
+
+Izyy: See? I can see a cloud on the horizon. If you don't stop overworking yourself like this, you will end up very unhappy. Remember, an ounce of prevention is worth a pound of cure!
+
+Mario: I think you're barking up the wrong tree. I'm really doing ok. I can handle this pressure just fine.
+
+Izyy: I'm worried that if you keep doing too much work, you will be like a deer in the headlights when you should make a big decision in your life. I also think your boss has a cloud of suspicion hanging over his head. These long work hours seem to be illegal. He can't make you work 15 hours every day. That's too much!
+
+Mario: I'm the cream of the crop computer programmer! They cannot run the business without me! They need me!
+
+Izyy: I hope you're right. Just make sure to take care of yourself, so you stay happy and healthy. Don't work too much.
+Example Conversation:
+
+1 = 
+
+Izyy: Hi, Daniella. I'm sorry I can't talk. I'm busy as a bee! I have to get to class.
+
+Daniella: You look like a deer in the headlights! Are you ok? There seems to be a cloud of suspicion hanging over you/ 
+
+Izyy: I'm fine. I'm just very busy. Sorry, see you later! Bye!
+
+2 = 
+
+Izyy: I keep telling my boss that we need to update our software on our computers for safety. It's so old. It is easy for someone to steal our important information. It's a disaster waiting to happen!
+
+John: Oh, really? That doesn't sound very safe. I guess working for a computer company though, having information stolen just comes with the territory.
+
+Izyy: Yes, but we have computer programmers that are the cream of the crop who could fix this problem very quickly, but my boss just doesn't listen.
+
+3 =
+
+Izyy: I see a cloud on the horizon in my math class.
+
+Harry: Oh really? Why?
+
+Izyy: The math teacher told us we have a quiz next week, but she never gave us a study guide. I suspect many students will get bad grades on the test.
+
+Harry: Yeah, if the teach just gave a study guide, well, that would help a lot. An ounce of prevention is worth a pound of cure you know.
+
+Izyy: My teacher thinks that if we just do the homework in class, we will be ok. I think she's barking up the wrong tree.
+
+Daniella: Bye.
+Lina Liu
+Oct 27, 2022Oct 27 at 5:45am
+Lina: My idioms: 1. A disaster waiting to happen, 2.An ounce of prevention is worth a pound of cure, 3. A cloud on the horizon
+
+Mia: Please install the whole nail down the hardwood floor, if you leave half of the nail outside, it's just a disaster waiting to happen!
+
+Luke: Sure,  I have already watching a lot of safety guide videos about how to install nails in a hardwood floor,  watching those video takes me time, but it's an ounce of prevention is worth a pound of cure.
+
+Mia: Great, please be careful, oohh, I already see the nail is bit of crooked, I could tell there is a cloud on the horizon.
+#### 57. Monday: Class Activity #1: Compare/Contrast Pragmatics Practice #2
+https://screencast-o-matic.com/watch/crerfRVVhvo
+Example Responses: (Culture + Family)
+
+Izyy: I think it's very important to preserve culture, language, and traditions from home countries. It's also important to adapt to a new country's culture, language, and traditions; however, I don't think people should fully assimilate and forget where they come from. I know some people believe this is the best way to start a new life in a different country, but to me, it often means that people forget very important things about where they came from. Children of people who have decided to "Assimilate" versus "adapt" often find themselves searching for answers about WHO AM I? They feel very separated from other people because their families don't often speak about where they came from and why they are different. I understand the importance these parents place on teaching children to fit into the new country with less difficulties, but it seems like a shame to forget about the "other" side of who they are. I found it fascinating to learn about my family's culture back in Europe. It also gave me a new way to look at the world around me that many other people do not have the opportunity to do. 
+
+I know many of my students worry that they will not be "accepted" if they do not "assimilate" into the new culture 100%. I think that's not true. You can "adapt" without having to "assimilate" 100%. You can still honor your roots.
+
+Izyy: Family is very important to me. Ever since I was a kid, I grew up only knowing my nuclear family. My relatives were all very far away. I was always very sad at school as one of the only children who didn't have a grandma or uncle who could come into class for an important project. I couldn't share them with my classes because I didn't have a close relationship with them. Unlike other kids, I didn't have stories about them. I did have my brothers and parents though, making us very close knit.
+
+#### 58. Monday: Class Activity #2: Class Discussion #9: Travel
+Discussion Topic #9: Travel (Think about and try to answer the following questions. Discuss with a partner)
+How often do you travel?
+Where do you like to travel? Why?
+What is the best place you have ever traveled to? Why?
+
+Example Responses:
+
+Not very often especially since the pandemic started, I work from home now, and I haven't really had much time off to travel anywhere. I hope to travel more in the future.
+I like to travel to local places like Muir Woods or Point Reyes for natural beauty. I love nature, and these places are great to sit in nature and enjoy the sights, sounds, and smells. Being outside makes me happy. For longer trips, I enjoy visiting places in Europe where I have family. I have not seen my relatives for 11 years now, so I miss them. I would like to go back and visit them soon, I hope.
+I think my favorite places I have ever traveled to is very difficult to choose. I have seen many amazing places, but one of my favorites was Ireland. The nature there is so lush and green. California doesn't receive as much rain, so nature is a bit different. Ireland is known as the "emerald isle" because it is so bright green. I loved it there.
+
+#### 59. Introduction and Practice of Phone Pragmatics
+
+https://screencast-o-matic.com/watch/crfXfKVn0xB
+
+Greeting: Hi, Hello, hey
+
+Intro: This is...; My name is...; It's .... calling, this is ... calling
+
+Reason: I'm calling because...; I'm calling about....; I'd like to speak to... about...; The reason I'm calling is..
+
+Converse: Let's talk about...; Ok, Let's talk about...; Great! Let's talk.
+
+End: Thank you for speaking with me, but I have to go now; I am afraid I have to run; Talk to you later;
+
+End: I wish I could speak longer, but I have to go.
+
+Ask: Who is calling? Who are you calling for? Why are you calling? who is this? How can I help you?
+
+Converse: Ok, let's talk. Sure, let's talk. No problem, what did you want to know? Sure, let's talk about that.
+
+End: Ok, I'll talk to you later. Ok, thanks for calling.
+
+End: Bye. Talk to you later. See you later. Ok, we'll talk another time. Thanks we'll talk again soon.
+
+Example Conversation:
+
+Izyy: Hello, this is Izyy. I'd like to speak with Kevin. Hi Kevin! Hey, I was wondering if you could share your travel plans with me for next week. I know you are going on vacation and need me to dog sit for you. When did you need me to come over and what did you want me to do?
+
+Kevin: Hi, Izyy! It's good to hear from you. Yes, I'm leaving next week. I need you to care for my dog Sparky for 5 days starting on November 5th. Can you do it?
+
+Izyy: November 5th? I think I can do it. Do I need to be there in the morning, afternoon, or evening?
+
+Kevin: It is best if you come in the afternoon. You don't need to sleep over at my house. Just come 3 times a day to make sure Sparky is fed, taken for 2 walks, played with, and generally taken care of. I'll be back the following Sunday. I'll leave some house keys for you this Wednesday at school.
+
+Izyy: Ok. Is Sparky a friendly dog? Is there anything else I need to know? 
+
+Kevin: Sparky loves people. He's very friendly. I think he'll love you. You should come some time this week, so he can get to know you better.
+
+Izyy: Ok. That sounds great. Listen Kevin, I have to go. I have class soon. Thanks for talking. Have a good vacation. Bye!
+
+Kevin: Thanks for helping me. Take care! Bye!
+
+### week 11
+#### 60. Introduction and Practice of Help/Favor Pragmatics
+Asking for help or a favor:
+Asking for help:
+1. Could you give me a hand? 
+2. Can you help me please?
+3. I could really use some help
+4. think you can lend me a hand?
+5. Could I ask you to help me with this?
+6. Please help me with this.
+
 
 # ESL_learning 075 note summary
 ### Unit 1 & 2
